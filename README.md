@@ -1,58 +1,93 @@
-C H A P T E R	2
+C H A P T E R 3
 
 
-ALL THE DAY before we moved, my father and uncle loaded the truck with boxes that my mother had packed. We planned to leave first thing the next morning. Lynn and I sat out on the front porch and watched them work. Uncle Katsuhisa didn't want us to help because he said we got in a man's way
-Lynn and I played soldier with the chess set. During a break, Uncle Katsuhisa walked onto the porch, clapped his hands three times, took out a handkerchief, and blew his nose. He clapped his hands again. "I'm the best Japanese chess player I know," he said. That was a challenge to Lynn. "Are you up to a game?"
+WE DROVE THROUGH two big cities: St. Louis, Missouri, and Nashville, Tennessee. In St. Louis the grown-ups left us in the car while they bought necessities. We watched them walk away toward a store. Then we got out to explore.
+We walked to the next block, to look at a building that was five stories tall. It was the highest building I'd ever seen.
+"There are buildings in Chicago more than ten times higher," said Lynn. "Are you sure?"
+"Yup. Maybe fifteen times."
+I thought the building was ugly, but her eyes shone brightly. Lynn's eyes were often kira-kira. "When we go to college, we're not going to live in a dormitory. We're going to live on the very top floor of a tall apartment building. I'll be in graduate school." Lynn planned to become either a rocket scientist or a famous writer. Though I knew nothing about animals, she said that when I grew up I would go to Africa and study them. I can't say that the idea of college was foremost on my mind; nevertheless, if Lynn was going, I would too.
 
-She set up the board. He rolled up his sleeves, as if chess were hard, physical work. Lynn beat him in about fifteen minutes. He was not a good sport and made her play him again and again so he could beat her. My father returned to loading up the truck, but Uncle Katsuhisa didn't even notice. He lost three games! He said again that he thought of himself as the best Japanese chess player in the whole United States. I have no idea where he got that idea of himself When Lynn beat him, I kept my face blank, but inside I was cheering for her.
-After Uncle's third loss he stepped off the porch and stared moodily across the gravel yard. He started making noises in his throat. He said, "Yah! Ooo-YAH! Gaaaaaaah! Gaaaaaaaah! Gaaaaaaah! Hocka-hocka- hocka! Geh-geh-geh-geh-geh!!" And then a glob of saliva flew like a baseball from his mouth and over the gravel. It landed on our only tree and dripped slowly down the bark. Lynn and I looked at each other, and she raised her eyebrows as if to say, See, I told you he was an odd fish.
-oOo
-We were poor, but in the way Japanese are poor, meaning we never borrowed money from anyone, period. Meaning once a year we bought as many fifty-pound bags of rice as we could afford, and we didn't get nervous again about money until we reached our last bag. Nothing went to waste in our house. For breakfast my parents often made their
+We walked back to the car and sat on the hood and swung our legs, like the women in our former town who my mother said were floozies. We pretended to smoke cigarettes like the floozies. But we got back in the car before our mother returned, because if she saw us looking like floozies, it might make her so upset that she would need to take an aspirin. Then our father would worry and he might not drive as well and they would get in an accident and get killed. That's why, even though I liked being bad all the time, I tried hard to be good.
 
-ochazuke—green tea mixed with rice—from the crusty old rice at the bottom of the pot. For our move to Georgia, Dad and Uncle loaded up the truck with all the bags of rice that we hadn't sold at the store. I watched my parents look at the rice in the truck, and I could see that the rice made them feel good. It made them feel safe.
+We rode with our parents for a while after that. They didn't talk for two whole hours. Then we got back in the truck with our uncle, and he never stopped talking. In Nashville we temporarily lost our parents because Uncle turned down a side street when he spotted a pawnshop. He pulled over, and we waited while he went inside. When he came out, he
 
-I liked to see them that way, especially my mother, who never seemed to feel safe. My mother was a delicate, rare, and beautiful flower. Our father told us that. She weighed hardly more than Lynn. She was so delicate that if you bumped into her accidentally, you could bruise her. She fell down a single stair once, and she broke her leg. To her that was proof even a single stair could present peril. When I would approach even a single stair, she would call out, "Be careful!"
+showed us a marble chess set he'd bought. He said that it had cost him an arm and a leg and that it was now his lucky chess set. He asked me if I thought he could beat Lynn with this lucky set, and I said no. My mother always told me to be polite, but, of course, she also said lying was one of the worst things you could do. So I chose to tell the truth to my uncle. Lynn said that sometimes in life you had to make choices.
+We stopped somewhere called the Country Bear Motel across the street from the bus station. My father let me come with him to get a room. When we got into the office, a tall woman was laughing into a phone. Her hair was mostly as black as mine, with an inch of white roots. She ignored us, so we waited.
 
-Our mother didn't like us to run or play or climb, because it was dangerous. She didn't like us to walk in the middle of our empty street, because you never knew. She didn't want us to go to college someday, because we might get strange ideas. She liked peace and quiet. My father used to say, "Shhhh. Your mother is taking a bath." Or, "Quiet down, girls, your mother is drinking tea." We never understood why we couldn't make noise while our mother was doing anything at all. My mother's favorite thing to tell us, in her iron-rimmed singsong voice, was "Shizukani!" That means "Hush!"
-She never said "Shizukani!" to my father. She made him food and rubbed his feet, and for this he let her handle all the money. Lynn said our mother probably knew a special foot-rubbing technique that made men silly. My father loved my mother a lot. That made me feel safe.
-The night before we moved, my father and uncle sat on a tree stump across the road. Lynn and I peeked out at them before we got in bed. My uncle talked and talked, and my father listened and listened. Sometimes they both laughed loudly.
-"What are they talking about?" I said. "Women," Lynn said knowingly. "What are they saying about women?"
+I kept looking at my dad to see whether he was going to try to hurry her along. But he was the most patient man in the world.
 
-"That the pretty ones make them giggle." "Oh. Good night."
-"Good night!"
-Our mother came into the bedroom in the middle of the night, the way she always did, to make sure we were asleep. As usual, Lynn was asleep and I was awake. If I was awake, I usually pretended to be asleep so as not to get in trouble. But tonight I said, "Mom?"
-"It's late, why are you up?"
+"You have got to be kidding, honey," the woman said into the phone. "He said that?! You should have slapped his face right then and there!" My father counted the bills in his wallet. She moved her mouth from the phone and said to my father, "Indians stay in the back rooms." She pushed a key and a registration card toward my father.
+"We're not Indian," I said.
 
-"I can't sleep without Bera-Bera." Bera-Bera was my favorite stuffed animal, which my mother had packed in a box. Bera-Bera talked too much, laughed too loudly, and sometimes sassed me, but still I loved him.
-"Someday you won't even remember Bera-Bera." She said this gently, and as if the thought made her a little sad. The thought made me a little sad too. She kissed my forehead and left. Outside I could hear noises: "Yah! Ooooh-YAH!" Et cetera. Lynn was sound asleep. I got up and watched Uncle Katsuhisa spit. My father no longer sat on the tree stump. It was just Uncle Katsuhisa out there. He was a madman, for sure.
-We left Iowa at dusk the next evening. We had meant to leave in the morning but got a little behind schedule for several reasons:
+"Mexicans, too." My father was dark that summer from working in the backyard.
+
+"We're not Mexican," I said. If my mother had been there, she would have made me quiet down. But my father just quietly filled out the registration card.
+The woman spoke into the phone. "Hold on a second, hon." She set the receiver down and turned her full focus on me. I took hold of my father's hand. 'Young lady, look at me."
+Finally, my father spoke. "A back room is fine," he said.
+"I just want to ask the girl something. Now, I'm serious, girl, because I've had a lot of trouble in my life, and I just want to know: Is there something on my forehead that spells 'I like trouble'? Does my face say to people, 'Trouble is my friend'? I'm asking you seriously."
+
+I concentrated on the woman's face. I glanced at my father, but he was studying the woman's forehead.
+The woman continued, "Are my veins shaped like a T' for 'trouble'?"
+She did have some veins on her forehead. But they didn't look like a "T" really. So I said, "No, ma'am."
+"I didn't think so. Now you all go to your room." She picked up the phone again. My father left some money, and she looked up again. "Back rooms are two dollars extra." My father slid another two dollars across the counter.
+The woman picked up the phone and listened a moment. "Shhhheee-it! You put up with too much from that man!"
+We walked outside into the placid evening. The sun was setting and the horizon was tangerine. Disk-shaped clouds hung in the sky.
+"What's 'shhheee-it'?" I said.
+My father leaned over and whispered in my ear what it was. He used the Japanese word, which, naturally, Lynn had already taught me. "Whatever you do, don't tell your mother I told you that."
+"I won't. One of her veins did sort of look like a 'T.' It wasn't on her forehead. It was on her cheek."
+"Looked like a 'B' to me, but I won't tell you what that stands for." "What? What what what? Tell me what it stands for!"
+My father looked around, as if he thought my mother might suddenly appear. Then he leaned over and whispered in my ear what "B" stood for. He said it stood for "bad lady."
+"If she's so bad, how come you gave her two dollars extra?" "Because you need a place to sleep," he said.
+"You could have beat her up," I said.
+
+He picked me up in his strong arms and didn't reply.
+When we got to our room, we saw some real Indians sitting on the curb. They looked at us as if they had never seen anything quite like us, and we looked at them the same way.
+Japan had people like Indians too. They were called the Ainu. My uncle had told Lynn and me about the Ainu. They were the first people ever to live in northern Japan. The Ainu called themselves the Sky People because they said their ancestors came from the sky, just like my ancestors came from Tokyo. The Ainu females used to tattoo mustaches on their faces. Lynn and I thought that sounded pretty. After our uncle told us about the Ainu, we painted mustaches on our faces every day for two weeks. Our father took pictures. Our mother got so upset, she had to lie down. She did not think of Japan as the land of Ainu, but rather as the land of her parents and the land where Lynn and I would eventually get sent to learn our femininity. My mother did not think mustaches were feminine. I don't know why.
+
+That night in the motel Uncle Katsuhisa didn't challenge Lynn to a game right away. First he took the chess set into the bathroom and closed the door. We heard him mumbling to himself. When I had to pee, he ignored my knocking, probably because he was concentrating so hard. Lynn had to take me to the motel office and ask to use their bathroom. The Evil Vein Lady was there. She didn't say anything, just shook her head in annoyance and handed us the key. Her head swayed, as if she could hardly keep it up. Lynn whispered to me, "She's drunk. I'm not gossiping, just explaining the facts." The woman's head fell to the counter. Earlier I hadn't liked her, but now I felt bad for her. I wondered if her parents loved her as much as mine loved me.
+When we returned to our room, Uncle Katsuhisa was ready to challenge Lynn. They sat down at the small table in our room. I sat on the bed with Bera-Bera and watched the game. My father had spent an hour searching through the truck for Bera-Bera and my sister's sweater.
+Uncle made a big show of clearing his throat. Then he thought and thought. He popped his ears twenty-seven times—I counted. It took him about ten minutes to move one pawn! I would have been bored, but Bera-Bera talked to me all the time. He told me everything he did
+
+every day All he did was talk. He also talked to Lynn. He told her that he knew Alice from the Through the Looking Glass book and that, like Alice, he could enter the magic world of reflections. When you looked at a clear reflection, like in a pond or a mirror, the reflection looked almost exactly like the real thing. But the world of reflections was different—it was magic. Naturally, Lynn had taught me that. She told me that Bera-Bera had many friends in the magic world of reflections. In his other world he was very important—maybe he was even emperor— but with me he was just my loving, talkative friend.
+Lynn took about two seconds to move a pawn. Uncle Katsuhisa took about fifteen minutes to move another pawn. Then Lynn moved a knight, and Uncle Katsuhisa looked stunned. I fell asleep, and when I woke up, Lynn was slumping in her chair looking bored. Uncle was frowning, deep in thought. Lynn still had her queen and he didn't. For a moment I thought Uncle was going to cry.
+Then he tipped over his king—that meant he surrendered. He walked outside, and we ran to the window to watch him spit. He was kind of like the geyser our father took us to see once at Yellowstone. That is, he spit at regular intervals. The Indians were sitting outside again. They looked at Uncle as if he might possibly be losing his mind.
+"Should I let him win one time?" said Lynn. "No," I said.
+That night, when I woke up in the middle of the night, I noticed a crack of light under the bathroom door. Uncle's cot was empty. I knew he was studying his chessboard. I felt a little sorry for him. He probably wanted to be a genius like Lynn. Maybe he envied her bright future.
+
+Sometimes I thought about my future, because Lynn said I should. She said it was hard to tell at this point, but someday, if I didn't go to Africa to study animals, I might be a beautiful genius tennis player. I didn't worry about it one way or another. I didn't care if I was a genius or if I was pretty or if I was good in sports. I just liked to listen to Lynn and to talk to Bera-Bera and to eat rice candies. The lady who used to live down the street could take all of her top teeth out of her mouth. She wasn't allowed to eat chewy candy. I could eat any kind of candy I
+
+wanted because I still had my baby teeth. If they rotted, I would simply grow more teeth. That was pretty great.
 
 
-1.I couldn't find the box with Bera-Bera, and I was convinced he was lost. Naturally, I had to have hysterics.
-2.My parents misplaced their six hundred dollars.
-3.Lynn couldn't find her favorite sweater with embroidered flowers. Naturally, she had to have hysterics.
-4.Uncle Katsuhisa fell asleep, and we thought it would be rude to wake him.
+From the car Georgia didn't seem so different from anyplace else. But when we got out of the car and talked to people, we couldn't understand them because of their southern accents. They talked like their mouths were full of rubber bands! People stared at us when we went into their restaurants. The restaurant signs said things like COLORED IN BACK. The white people sat at the front. We didn't know where to sit, so we always ordered to-go. We didn't see another Japanese person anywhere. We got stared at quite a bit. Sometimes a white lady would lean over us and exclaim, "How cute!" Some of them touched our faces, as if they weren't sure we were real.
+
+Georgia had many claims to fame. During our driving Lynn read me all the signs: GORDON, CHICKEN CAPITAL OF THE WORLD; VIDALIA, HOME OF THE SWEETEST ONIONS IN THE WORLD; CORDELE, WATERMELON CAPITAL OF THE WORLD; MILTON, THE WORLD'S BEST PEACHES; and TEMPLETON, WHERE PEANUTS
+ARE KING. We also saw seven different restaurants that claimed to have the world's best BBQ.
+
+Several times we drove by an antebellum mansion. "Antebellum" means "before the Civil War." Lynn taught me that. She had tried to read the whole dictionary once, so she knew the definitions of a lot of words that started with "a." An antebellum mansion was not as beautiful as, say, a mountain or the sky, but for a house it was pretty darn nice. Before the Civil War really rich white people lived in the mansions and owned slaves. I didn't know who lived in them now.
+
+Our new town was called Chesterfield. Uncle told us the population was 4,001. Six other Japanese families lived in Chesterfield. Including us, that made a grand total of thirty-one Japanese people. All of the fathers worked at the hatchery in a nearby town.
+We had ridden most of the day in the truck with our uncle because he wanted to talk chess with Lynn. I mostly just stared out the window the whole time. Shortly before we arrived in Chesterfield, I took a nap. When I woke up, I saw I had wet my pants. I didn't tell Lynn or my uncle.
+
+We were going to Uncle's house, where he planned to throw a little welcome party for us that night. I thought maybe I could sneak inside his house without anybody noticing. We rolled down a curvy road. Here and there I saw a small frame house with chipping paint. Old rusted cars or piles of tires sat in the yards. Chickens ran loose. We saw a dead chicken in the road, and Lynn and I screamed. Finally we stopped at a small house just like all the others.
+Uncle Katsuhisa's family came out to greet us. He was the only Japanese in town who owned a house. The front yard was composed of gravel with bits of yellow grass, and the paint on the house was chipped. Still, it seemed okay to me. My own family would be living in the same cheap apartment building as the other Japanese who worked at the hatchery. Uncle Katsuhisa lived in a house because he was different. He had big plans. First of all, he had inherited two thousand dollars from a man whose life he'd saved during World War II. So while he wasn't rich, he was better off than most of us. Second of all, he was studying with a friend to work as a land surveyor, which is where you measure and study land. He knew a lot about soil and mud and things like that. He did not want to work in a hatchery all his life.
+When we arrived at his house, my six-year-old twin cousins, David and Daniel, were waiting with Auntie Fumiko. Auntie was a round woman, with a round face, round tummy, and round calves. Even her hair was shaped into a big round thing on her head. Someday I planned to knock it over and see what was inside it. Uncle popped his horn and waved at them. We got out of the car, and almost the first thing that happened was my auntie Fumi started shouting at the top of her lungs, "Katie wet herself! Katie wet herself!" I was so embarrassed that I burst into tears. Everybody laughed, and David and Daniel shouted out, "Katie wet herself!" My mother said, "Katie wet herself!" My father looked proud of me. He was proud of us no matter what we did.
+
+Later, when the other Japanese families arrived, we ate all night long: salted rice balls, fish cakes, rice crackers, rice candies, and barbecued chicken. Rice balls are called onigiri, and they were the only thing I knew how to make. To make onigiri, you wash your hands and cover your palms with salt. Then you grab a handful of rice and shape it into a lump. My mother made fancy triangle-shaped onigiri, with seaweed and pickled plums, but I just made the basic kind. Someday when I got
+
+older, I would have to learn to make fancy onigiri too, or nobody would marry me.
+We picked fruit off a peach tree nearby and listened to our parents talk about business. My father would be working as a chicken sexer, which he told us is where you separate the male chicks from the female chicks when they're still wet from being inside the egg. From what I could gather, you had to separate them so that the male chickens could be killed.
+They were useless since they couldn't lay eggs. Uncle Katsuhisa said that it might seem sad to kill them, but eventually, we would learn to be kind of like farm kids—farm kids understood the meaning of death. They understood how death was part of life. When he said that, my mother and Auntie Fumi frowned at him. They did that all the time when he was talking. That meant he had to stop talking.
+
+After they frowned, there was a silence. I looked around and saw Lynn playing with some kids closer to her age. "Come on!" she called, and I ran after them. Sometimes older kids didn't like me around, but Lynn always made them play with me. We played until bedtime, and that night Lynn and I slept on the floor in the living room. There seemed to be a million crickets singing around us. The half-moon shone through the windows. My sister and I practiced our howling and barking so we would be able to talk to our dogs if our mother ever let us get any. Our mother came into the room to quiet us down. She looked tired and worried for some reason. In fact, she looked as if she might cry. So we settled down immediately.
+Seeing my mother like that made me remember Iowa. Here are the things I already missed:
 
 
-Uncle woke up on his own. My parents found their money. But Lynn and I didn't find our items, so naturally, we continued our hysterics. Finally, my mother said, "We must leave or I don't know what!" She looked at Lynn and me crying. "Maybe you girls should keep your uncle company while he drives."
-"Oh, no," said Uncle. "I wouldn't want to deprive you of their delightful company."
-"No," said my mother. "I wouldn't want you to be lonely."
-So we climbed into the noisy truck with our noisy uncle. Then we cried so much that our uncle refused to drive with us anymore. He pulled to the side of the highway. Then we got in our parents' car and cried so much that they pulled over and flipped a coin with Uncle Katsuhisa. Uncle lost, so we got back in the truck with him.
-Lynn and I were perfectly happy in Iowa. I did not see why we had to move to a new job that my father had told us would be the hardest work he had ever done. I did not see why we had to move to a southern state where my father said you could not understand a word people said because of their southern accents. I did not see why we had to leave our house for a small apartment.
-After awhile Lynn and I ran out of tears and sat glumly in the truck with Uncle Katsuhisa. I knew if I thought of Bera-Bera, I would cry. But I had nothing else to do, so I thought of him. He was half dog, half rabbit, and he had orange fur. He was my best friend next to Lynn. "I want Bera- Bera!" I cried out.
-Lynn cried out, "I want my sweater!" We both burst into tears.
+1.The view. When I used to look outside my bedroom window on summer mornings, I saw nothing but corn and blue sky. In winter I saw snow and blue sky.
+2.The Iowa State Japanese-American Bowling League. Every Saturday all the Japanese Americans for many miles around met at a bowling
 
-It was a warm night. Whenever we paused in our crying, the only other sound inside the truck was the sound of my uncle smacking his chewing tobacco. I dreaded to know what would happen when he spit out that tobacco. Now he rolled down the window, and I thought the Great Spit was about to come. Instead, he looked at us slyly.
-"I could teach you girls how to spit like a master," he said.
+alley in the middle of the state. My father's friends always gave us coins and told us what songs to play on the jukebox.
+3.Mrs. Chan, the Chinese widow from down the street. We'd helped her plant tomatoes in her yard earlier that summer. By the way, she was the one who could take out her top teeth.
 
-My sister squinted at him. She stopped crying. So did I. I could tell she thought it might be fun to learn how to spit like a master. So did I. Our mother would kill us. Lynn said, "Maybe."
-He belched very loudly, then glanced at us. I realized his belch was preparation for spitting. I swallowed some air and burped. So did Lynn. Then Uncle Katsuhisa's throat rumbled. The rumbling got louder and louder. Even over the sound of the motor, it seemed like a war was going on in his throat. Lynn and I tried to rumble our throats like him.
-"Hocka-hocka-hocka!" he said.
-Lynn and I copied him: "Hocka-hocka-hocka!" "Geh-geh-geh!"
-"Geh-geh-geh!"
-He turned to his open window, and an amazing wad of brown juice flew from his mouth. The brown juice was like a bat bursting out of a cave. We turned around to watch it speed away. A part of me hoped it would hit the car behind us, but it didn't. I leaned over Lynn and out the passenger window. "Hyaaahhhh!" I said, and a little trickle of saliva fell down my chin.
-No one spoke. For some reason the silence made me start crying again. As if Uncle Katsuhisa couldn't restrain himself, he started singing my name over and over, "Katie, Katie, Katie . . . " Then he sang Katie songs to the tunes of "Row, Row, Row Your Boat," "America the Beautiful," "Kookaburra," and some songs I didn't recognize. For instance, he sang, "Oh, Katie, Kate, for spacious skies, for Katie Katie Kate." He made me giggle. It was almost as if someone were tickling me. For a while I forgot about Bera-Bera.
-
-Lynn smiled with satisfaction. I knew this was because she liked for me to be happy. The wind hit our hair as Uncle Katsuhisa continued to sing Katie songs. I looked outside over a field and tried to find the Sode Boshi, the kimono sleeve in the sky where Uncle Katsuhisa said westerners see the constellation Orion. Then my uncle began to sing Lynnie songs.
-
-She laughed and laughed and laughed.
+4.Snow. Making angels and snowmen was fun. Sometimes our father played with us. Once, our mother came outside, and Dad actually threw a snowball at her. I thought she would faint, but after a long pause she smiled slightly.
+My parents. They worked regular hours in Iowa. Here in Georgia they planned to leave for work every day very early in the morning. Our father would work two jobs, and our mother would work overtime if it was available. I already missed them.
