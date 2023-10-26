@@ -1,93 +1,106 @@
-C H A P T E R 3
+C H A P T E R 4
 
 
-WE DROVE THROUGH two big cities: St. Louis, Missouri, and Nashville, Tennessee. In St. Louis the grown-ups left us in the car while they bought necessities. We watched them walk away toward a store. Then we got out to explore.
-We walked to the next block, to look at a building that was five stories tall. It was the highest building I'd ever seen.
-"There are buildings in Chicago more than ten times higher," said Lynn. "Are you sure?"
-"Yup. Maybe fifteen times."
-I thought the building was ugly, but her eyes shone brightly. Lynn's eyes were often kira-kira. "When we go to college, we're not going to live in a dormitory. We're going to live on the very top floor of a tall apartment building. I'll be in graduate school." Lynn planned to become either a rocket scientist or a famous writer. Though I knew nothing about animals, she said that when I grew up I would go to Africa and study them. I can't say that the idea of college was foremost on my mind; nevertheless, if Lynn was going, I would too.
+OUR APARTMENT BUILDING in Chesterfield was one story, shaped like a U around a courtyard. The inside of our apartment consisted of two very small bedrooms, a living room, a kitchen, and a bathroom. The wall- paper in the kitchen was dirty and peeling. Mold grew on the wall in the bathroom. Lynn and I followed our parents from room to room.
+Our mother was obviously unhappy, which made our father unhappy. She didn't complain, but we could all tell how she felt because she wore a look like she did when she had a headache. Our father said, "Kiyoko, we'll make part of the living room into your sewing area. That'll be nice." She didn't answer. He said, "There's a free refrigerator here!" She still didn't answer. He said, "I'm going to paint the girls' room white with pink trim!"
+Finally, she spoke. "There's only space for two small beds and one small desk in their room. Where will we put Katie's desk when she starts school?"
+"Let me think about that," he said. "We'll have to put it in my sewing area."
+Nobody answered. I felt guilty because my future desk would ruin her sewing area. I didn't even want to go to school, anyway. I forgot to think nonsense words. That's why my mother was able to read my mind and know I felt guilty. She pulled me to her and hugged me. "It's not your fault!" she said, suddenly cheerful.
 
-We walked back to the car and sat on the hood and swung our legs, like the women in our former town who my mother said were floozies. We pretended to smoke cigarettes like the floozies. But we got back in the car before our mother returned, because if she saw us looking like floozies, it might make her so upset that she would need to take an aspirin. Then our father would worry and he might not drive as well and they would get in an accident and get killed. That's why, even though I liked being bad all the time, I tried hard to be good.
+A swing-set frame sat in the middle of our courtyard, but there were no swings. Some of the kids liked to climb on the frame. Everyone played outside all the time because there was nothing to do in our small apartments. When the fathers wanted to talk outside, they sat on the curb in front of Mr. Kanagawa's apartment. He was sort of their leader.
+His wife, Mrs. Kanagawa, didn't work, so when fall came, she took care of the preschoolers all day. I could have gone to kindergarten, but when I went for one week, I cried and screamed so much that my parents
 
-We rode with our parents for a while after that. They didn't talk for two whole hours. Then we got back in the truck with our uncle, and he never stopped talking. In Nashville we temporarily lost our parents because Uncle turned down a side street when he spotted a pawnshop. He pulled over, and we waited while he went inside. When he came out, he
+thought maybe I shouldn't start school until first grade. There were three of us preschoolers, but the other two were younger than me, so I played by myself. I could read and write a little bit, I could color or jump rope alone, but mostly I played with Bera-Bera. He chattered on and on, even when I was trying to take my nap.
+At 3:30 each afternoon, I would watch out the window until I saw Lynn walking down the street—there were no sidewalks in our small town. I would run outside to meet her. Mrs. Kanagawa said I was like Lynn's pet dog.
+Most days in southern Georgia were warm and humid. After school Lynn, some of the other kids from the residence, and I used to lie about and stare at the clouds. If it was cool enough, we would play dodgeball. At night before we went in for bed, the parents would sit on the stoop and we children would either play or lie on our backs and watch the Milky Way. Watching the sky was all Lynn's idea. Just as Mr. Kanagawa was the leader of the fathers, Lynn quickly became the leader of us kids. She was a big believer in watching the sky. She pointed out that if beings from outer space ever came, they would probably want to talk to us. So we should keep our eyes open.
+Some nights before bed Lynn and I would make our wishes. First we made selfish wishes, and then we finished with unselfish wishes. One night, though, Lynn said, "Let's just make selfish wishes tonight."
+That seemed bad, so I said, "Okay." "You start."
+"I wish for a bed with a canopy and a box of sixteen crayons instead of eight."
+"I wish that I'll go to college on a scholarship someday. I wish I'll be homecoming queen in high school. I wish we could afford a nice house."
 
-showed us a marble chess set he'd bought. He said that it had cost him an arm and a leg and that it was now his lucky chess set. He asked me if I thought he could beat Lynn with this lucky set, and I said no. My mother always told me to be polite, but, of course, she also said lying was one of the worst things you could do. So I chose to tell the truth to my uncle. Lynn said that sometimes in life you had to make choices.
-We stopped somewhere called the Country Bear Motel across the street from the bus station. My father let me come with him to get a room. When we got into the office, a tall woman was laughing into a phone. Her hair was mostly as black as mine, with an inch of white roots. She ignored us, so we waited.
+"I wish we had a better hot-water heater so the water wasn't so cold all the time."
 
-I kept looking at my dad to see whether he was going to try to hurry her along. But he was the most patient man in the world.
+She didn't say anything. She probably felt bad, like me. I felt like maybe we should make some unselfish wishes.
 
-"You have got to be kidding, honey," the woman said into the phone. "He said that?! You should have slapped his face right then and there!" My father counted the bills in his wallet. She moved her mouth from the phone and said to my father, "Indians stay in the back rooms." She pushed a key and a registration card toward my father.
-"We're not Indian," I said.
+She said, "Maybe we can each make one unselfish wish." "I wish for a house for you and for Mom."
+"I wish you would be happy forever."
+That left our father. I didn't know what he wanted most. It seemed the only thing he wanted was to take care of us. Every time it was his birthday, we got him aftershave lotion that our mother paid for. He always seemed to like it.
+I said, "I wish Dad never loses his hair like Grandpa did before he died."
 
-"Mexicans, too." My father was dark that summer from working in the backyard.
+The last thing before we went to bed, Lynn and I would talk about what we should spend our money on the next day. Every weekday our father gave us a nickel to get ourselves a treat. But that night Lynn said, "From now on we're going to save our nickels to help Mom and Dad buy our first house. That way, instead of just wishing for a house, we're helping to really get one."
 
-"We're not Mexican," I said. If my mother had been there, she would have made me quiet down. But my father just quietly filled out the registration card.
-The woman spoke into the phone. "Hold on a second, hon." She set the receiver down and turned her full focus on me. I took hold of my father's hand. 'Young lady, look at me."
-Finally, my father spoke. "A back room is fine," he said.
-"I just want to ask the girl something. Now, I'm serious, girl, because I've had a lot of trouble in my life, and I just want to know: Is there something on my forehead that spells 'I like trouble'? Does my face say to people, 'Trouble is my friend'? I'm asking you seriously."
+That was a hard thing to agree with, but I didn't argue because Lynn was boss. Usually when Lynn got home from school, we would go to the market, where we studied the treats for a long time before picking out what we wanted: often a powdered-sugar doughnut. Then we would walk along the highway eating. It was sad to think all that was over, but I guessed a house would be worth it.
+"Good night, Katie," she said. "Good night."
 
-I concentrated on the woman's face. I glanced at my father, but he was studying the woman's forehead.
-The woman continued, "Are my veins shaped like a T' for 'trouble'?"
-She did have some veins on her forehead. But they didn't look like a "T" really. So I said, "No, ma'am."
-"I didn't think so. Now you all go to your room." She picked up the phone again. My father left some money, and she looked up again. "Back rooms are two dollars extra." My father slid another two dollars across the counter.
-The woman picked up the phone and listened a moment. "Shhhheee-it! You put up with too much from that man!"
-We walked outside into the placid evening. The sun was setting and the horizon was tangerine. Disk-shaped clouds hung in the sky.
-"What's 'shhheee-it'?" I said.
-My father leaned over and whispered in my ear what it was. He used the Japanese word, which, naturally, Lynn had already taught me. "Whatever you do, don't tell your mother I told you that."
-"I won't. One of her veins did sort of look like a 'T.' It wasn't on her forehead. It was on her cheek."
-"Looked like a 'B' to me, but I won't tell you what that stands for." "What? What what what? Tell me what it stands for!"
-My father looked around, as if he thought my mother might suddenly appear. Then he leaned over and whispered in my ear what "B" stood for. He said it stood for "bad lady."
-"If she's so bad, how come you gave her two dollars extra?" "Because you need a place to sleep," he said.
-"You could have beat her up," I said.
+During the autumn the sultry air made us tired but not too tired. If it was too hot, we took a nap before supper. Then Lynn would read to me. Since she was a genius, she could read anything, even Encyclopaedia Britannica. We had the "P" volume from Encyclopaedia Britannica that somebody had left behind in our house in Iowa when we moved in. We planned to read it all the way through. Our other favorite book was Silas Marner. We were quite capitalistic and liked the idea of Silas keeping all that gold underneath the floorboards.
 
-He picked me up in his strong arms and didn't reply.
-When we got to our room, we saw some real Indians sitting on the curb. They looked at us as if they had never seen anything quite like us, and we looked at them the same way.
-Japan had people like Indians too. They were called the Ainu. My uncle had told Lynn and me about the Ainu. They were the first people ever to live in northern Japan. The Ainu called themselves the Sky People because they said their ancestors came from the sky, just like my ancestors came from Tokyo. The Ainu females used to tattoo mustaches on their faces. Lynn and I thought that sounded pretty. After our uncle told us about the Ainu, we painted mustaches on our faces every day for two weeks. Our father took pictures. Our mother got so upset, she had to lie down. She did not think of Japan as the land of Ainu, but rather as the land of her parents and the land where Lynn and I would eventually get sent to learn our femininity. My mother did not think mustaches were feminine. I don't know why.
+Whenever Lynn was late from school, I would cry. Mrs. Kanagawa would tell my mother whenever I cried. My mother said I was a crybaby, but Lynn said I was actually happy because it was my nature to be so, just like it was Lynn's nature to be a genius. It was also Lynn's nature to be a little bossy. Mrs. Kanagawa told me that.
+Lynn didn't seem to be making many friends at school. So she spent a lot of time with me. That was the way I passed the first year in Georgia: waiting all day for Lynn to come home and then playing with Lynn until bedtime. When summer came again, we played all day and all night until bed.
 
-That night in the motel Uncle Katsuhisa didn't challenge Lynn to a game right away. First he took the chess set into the bathroom and closed the door. We heard him mumbling to himself. When I had to pee, he ignored my knocking, probably because he was concentrating so hard. Lynn had to take me to the motel office and ask to use their bathroom. The Evil Vein Lady was there. She didn't say anything, just shook her head in annoyance and handed us the key. Her head swayed, as if she could hardly keep it up. Lynn whispered to me, "She's drunk. I'm not gossiping, just explaining the facts." The woman's head fell to the counter. Earlier I hadn't liked her, but now I felt bad for her. I wondered if her parents loved her as much as mine loved me.
-When we returned to our room, Uncle Katsuhisa was ready to challenge Lynn. They sat down at the small table in our room. I sat on the bed with Bera-Bera and watched the game. My father had spent an hour searching through the truck for Bera-Bera and my sister's sweater.
-Uncle made a big show of clearing his throat. Then he thought and thought. He popped his ears twenty-seven times—I counted. It took him about ten minutes to move one pawn! I would have been bored, but Bera-Bera talked to me all the time. He told me everything he did
+By the time I was six and ready to start school, my accent had already become very Southern. I no longer called my sister "Lynn," I called her "Lee-uhn." I was kind of a celebrity in my neighborhood, the little Japanese girl who said "you all" instead of "you," and "You don't sah- eee" instead of "Really?" Sometimes people would pay me a few pennies to talk to them. My sister encouraged this enterprise, and soon we were rich.
+We kept the money in a moldy hole in the tile under the bathtub. Once a month we would count it.
 
-every day All he did was talk. He also talked to Lynn. He told her that he knew Alice from the Through the Looking Glass book and that, like Alice, he could enter the magic world of reflections. When you looked at a clear reflection, like in a pond or a mirror, the reflection looked almost exactly like the real thing. But the world of reflections was different—it was magic. Naturally, Lynn had taught me that. She told me that Bera-Bera had many friends in the magic world of reflections. In his other world he was very important—maybe he was even emperor— but with me he was just my loving, talkative friend.
-Lynn took about two seconds to move a pawn. Uncle Katsuhisa took about fifteen minutes to move another pawn. Then Lynn moved a knight, and Uncle Katsuhisa looked stunned. I fell asleep, and when I woke up, Lynn was slumping in her chair looking bored. Uncle was frowning, deep in thought. Lynn still had her queen and he didn't. For a moment I thought Uncle was going to cry.
-Then he tipped over his king—that meant he surrendered. He walked outside, and we ran to the window to watch him spit. He was kind of like the geyser our father took us to see once at Yellowstone. That is, he spit at regular intervals. The Indians were sitting outside again. They looked at Uncle as if he might possibly be losing his mind.
-"Should I let him win one time?" said Lynn. "No," I said.
-That night, when I woke up in the middle of the night, I noticed a crack of light under the bathroom door. Uncle's cot was empty. I knew he was studying his chessboard. I felt a little sorry for him. He probably wanted to be a genius like Lynn. Maybe he envied her bright future.
+The day before I started first grade, Lynn sat me down for a talk. She gave me talks only when something very, very serious was happening. She always told me the truth and didn't treat me like a baby. It was she and not my parents who'd first told me we were leaving Iowa.
+We sat cross-legged on the floor in our room and held hands and closed our eyes while she chanted, "Mind meld, mind meld, mind meld." That was our friendship chant.
 
-Sometimes I thought about my future, because Lynn said I should. She said it was hard to tell at this point, but someday, if I didn't go to Africa to study animals, I might be a beautiful genius tennis player. I didn't worry about it one way or another. I didn't care if I was a genius or if I was pretty or if I was good in sports. I just liked to listen to Lynn and to talk to Bera-Bera and to eat rice candies. The lady who used to live down the street could take all of her top teeth out of her mouth. She wasn't allowed to eat chewy candy. I could eat any kind of candy I
+She gazed at me solemnly. "No matter what happens, someday when we're each married, we'll own houses down the block from each other. We'll live by the sea in California."
+That sounded okay with me. "If y'all are going to live by the sea, I will too," I said. I had never seen the California sea, but I imagined it was very pretty. She leaned forward then, and I knew she was going to get to the point of this talk.
 
-wanted because I still had my baby teeth. If they rotted, I would simply grow more teeth. That was pretty great.
+"Have you noticed that sometimes people won't say hello to Mom when we're out shopping?"
+"Uh-huh."
+"Well, some of the kids at school may not say hello to you, either." "You mean because they don't know me?"
+"No, I mean because they don't want to know you."
 
+"Why wouldn't they want to know me?" Who wouldn't want to know me? This was a new idea for me. Our father had always thought we were quite amazing, and Lynn, of course, had always thought I was perfect, so I thought of myself as rather amazing and maybe even perfect.
+"Because, there's only thirty-one Japanese people in the whole town, and there's more than four thousand people in the town, and four thousand divided by thirty-one is . . . a lot more of them than of us. Do you understand?"
+"No."
+Lynn's face darkened. That was kind of unusual. "Haven't you noticed that Mom and Dad's only friends are Japanese?"
+"I guess so."
+"That's because the rest of the people are ignoring them. They think we're like doormats—or ants or something!" Now she was really angry.
+"Ants?"
 
-From the car Georgia didn't seem so different from anyplace else. But when we got out of the car and talked to people, we couldn't understand them because of their southern accents. They talked like their mouths were full of rubber bands! People stared at us when we went into their restaurants. The restaurant signs said things like COLORED IN BACK. The white people sat at the front. We didn't know where to sit, so we always ordered to-go. We didn't see another Japanese person anywhere. We got stared at quite a bit. Sometimes a white lady would lean over us and exclaim, "How cute!" Some of them touched our faces, as if they weren't sure we were real.
+She suddenly reached out and hugged me to her. "You tell me if anybody treats you like that, and I'll take care of it!"
+"Okay." Sometimes Lynn didn't seem to make sense. That was because I was so young and she was such a genius.
+Then she kissed my face and said, 'You're the most wonderful girl in the world!"
 
-Georgia had many claims to fame. During our driving Lynn read me all the signs: GORDON, CHICKEN CAPITAL OF THE WORLD; VIDALIA, HOME OF THE SWEETEST ONIONS IN THE WORLD; CORDELE, WATERMELON CAPITAL OF THE WORLD; MILTON, THE WORLD'S BEST PEACHES; and TEMPLETON, WHERE PEANUTS
-ARE KING. We also saw seven different restaurants that claimed to have the world's best BBQ.
+Right then my mother came in with scissors to chop off my long straight hair. This was a ritual all the local Japanese mothers performed the day before they sent their daughters off to school for the first time. My mother cut my hair to my chin and made me sleep in pin curls all night. This was okay with me because Lynn wore curls during the school year, and so I knew it was what big girls did. But when I woke up and took out the bobby pins, I was too shocked even to cry or scream or stomp around the house. I looked like a feather duster! After the shock wore off, I was ready to cry and scream and stomp. "I'm not going to school!" I screamed. "I'm not!" I stared in the mirror, closed my eyes, and stared again. I stomped one foot and then the other. Lynn gaped at me. She looked kind of half amused and kind of half horrified.
 
-Several times we drove by an antebellum mansion. "Antebellum" means "before the Civil War." Lynn taught me that. She had tried to read the whole dictionary once, so she knew the definitions of a lot of words that started with "a." An antebellum mansion was not as beautiful as, say, a mountain or the sky, but for a house it was pretty darn nice. Before the Civil War really rich white people lived in the mansions and owned slaves. I didn't know who lived in them now.
+My mother "fixed" my hair by combing it. She said I looked like Ava Gardner, who Lynn said was a beautiful famous actress with about seventy thousand boyfriends. If she was so famous, why had I never heard of her? Still, I liked the idea of looking like a movie star. I calmed down a bit. My father said, "You look like ... you look like ... well, you look awfully cute!" It was the middle of the night, because that's when my parents went to work. They were both running a little late so that they could spend time with me on my first day of school.
+My mother put me in a yellow chiffon party dress. I liked the dress. And I was starting to like my hair. As a matter of fact, I started to think I looked quite ravishing. After my parents went to work, I just sat there and wouldn't move in case my hair got mussed. I wouldn't even let Lynn try to comb my hair because it was already perfect. When Mrs. Kanagawa came over to check on us, she oohed and aahed over how cute I looked.
+I felt like an empress on the way to school. I wasn't even nervous as we walked on the shoulder of the road to school. Lynn was just wearing a jumper, but her hair was curled like mine. She stopped when we stood across the street from the school.
+"That's it?" I said. The school wasn't any bigger than our little apartment building.
+"That's it," she said.
 
-Our new town was called Chesterfield. Uncle told us the population was 4,001. Six other Japanese families lived in Chesterfield. Including us, that made a grand total of thirty-one Japanese people. All of the fathers worked at the hatchery in a nearby town.
-We had ridden most of the day in the truck with our uncle because he wanted to talk chess with Lynn. I mostly just stared out the window the whole time. Shortly before we arrived in Chesterfield, I took a nap. When I woke up, I saw I had wet my pants. I didn't tell Lynn or my uncle.
+I was a little disappointed. I didn't understand what all the commotion had been about or why I was wearing my best dress.
+When we walked into the schoolyard, I saw that all the other girls were dressed more like Lynn, in jumpers or plain skirts with white blouses. Lynn walked me to my class line, where I stood on the number— Classroom #100—by myself. All around me girls were playing and
+talking. They all wore curls, nhưng no one's hair was as curly as mine. Finally, the bell rang, and about a dozen kids lined up behind me.
 
-We were going to Uncle's house, where he planned to throw a little welcome party for us that night. I thought maybe I could sneak inside his house without anybody noticing. We rolled down a curvy road. Here and there I saw a small frame house with chipping paint. Old rusted cars or piles of tires sat in the yards. Chickens ran loose. We saw a dead chicken in the road, and Lynn and I screamed. Finally we stopped at a small house just like all the others.
-Uncle Katsuhisa's family came out to greet us. He was the only Japanese in town who owned a house. The front yard was composed of gravel with bits of yellow grass, and the paint on the house was chipped. Still, it seemed okay to me. My own family would be living in the same cheap apartment building as the other Japanese who worked at the hatchery. Uncle Katsuhisa lived in a house because he was different. He had big plans. First of all, he had inherited two thousand dollars from a man whose life he'd saved during World War II. So while he wasn't rich, he was better off than most of us. Second of all, he was studying with a friend to work as a land surveyor, which is where you measure and study land. He knew a lot about soil and mud and things like that. He did not want to work in a hatchery all his life.
-When we arrived at his house, my six-year-old twin cousins, David and Daniel, were waiting with Auntie Fumiko. Auntie was a round woman, with a round face, round tummy, and round calves. Even her hair was shaped into a big round thing on her head. Someday I planned to knock it over and see what was inside it. Uncle popped his horn and waved at them. We got out of the car, and almost the first thing that happened was my auntie Fumi started shouting at the top of her lungs, "Katie wet herself! Katie wet herself!" I was so embarrassed that I burst into tears. Everybody laughed, and David and Daniel shouted out, "Katie wet herself!" My mother said, "Katie wet herself!" My father looked proud of me. He was proud of us no matter what we did.
+Somebody tapped me on my shoulder, and when I turned around, the girl right in back of me said, "Are you Chinese or Japanese?"
+"Japanese," I said.
+Another girl called out, "What's your native name?"
+I wasn't exactly sure what she meant, but I said, "Natsuko." That was my middle name. It means "summer"—when I was born. My sister's middle name was Akiko, which means "autumn"—when she was born.
+Then a girl said to me, "What happened to your hair?"
+I could tell she wasn't insulting me; she was just curious. I felt my face grow hot. I didn't answer.
+Then the teacher came to walk us into class. She smiled at my dress and said, "Going to a party?" I would have gone home right then, but I wasn't sure I could find the way without Lynn.
+When class opened, the teacher said everyone could sit where they wanted, just for today. All the girls screamed and giggled and rushed this way and that around me. Then they all sat down. At recess I stood in the middle of the schoolyard in my party dress. Once, two girls from my class walked by not far from me, and I called out, "School sure is boring, isn't it?" but they ignored me. Lynn came out to stand with me. She said she'd stayed inside a few minutes after the bell because her teacher wanted to tell her what a good girl she was.
 
-Later, when the other Japanese families arrived, we ate all night long: salted rice balls, fish cakes, rice crackers, rice candies, and barbecued chicken. Rice balls are called onigiri, and they were the only thing I knew how to make. To make onigiri, you wash your hands and cover your palms with salt. Then you grab a handful of rice and shape it into a lump. My mother made fancy triangle-shaped onigiri, with seaweed and pickled plums, but I just made the basic kind. Someday when I got
+Later that afternoon, when I didn't know an answer, my teacher looked disappointed and said, "I've heard your sister is very smart." I didn't hold
 
-older, I would have to learn to make fancy onigiri too, or nobody would marry me.
-We picked fruit off a peach tree nearby and listened to our parents talk about business. My father would be working as a chicken sexer, which he told us is where you separate the male chicks from the female chicks when they're still wet from being inside the egg. From what I could gather, you had to separate them so that the male chickens could be killed.
-They were useless since they couldn't lay eggs. Uncle Katsuhisa said that it might seem sad to kill them, but eventually, we would learn to be kind of like farm kids—farm kids understood the meaning of death. They understood how death was part of life. When he said that, my mother and Auntie Fumi frowned at him. They did that all the time when he was talking. That meant he had to stop talking.
-
-After they frowned, there was a silence. I looked around and saw Lynn playing with some kids closer to her age. "Come on!" she called, and I ran after them. Sometimes older kids didn't like me around, but Lynn always made them play with me. We played until bedtime, and that night Lynn and I slept on the floor in the living room. There seemed to be a million crickets singing around us. The half-moon shone through the windows. My sister and I practiced our howling and barking so we would be able to talk to our dogs if our mother ever let us get any. Our mother came into the room to quiet us down. She looked tired and worried for some reason. In fact, she looked as if she might cry. So we settled down immediately.
-Seeing my mother like that made me remember Iowa. Here are the things I already missed:
+this against Lynn, though. I was proud of her.
 
 
-1.The view. When I used to look outside my bedroom window on summer mornings, I saw nothing but corn and blue sky. In winter I saw snow and blue sky.
-2.The Iowa State Japanese-American Bowling League. Every Saturday all the Japanese Americans for many miles around met at a bowling
+Shortly before I'd started first grade, my mother had started to gain a lot of weight. She peed a lot, she threw up a lot, and she drank a lot of water. She ate weird things, like spoonful after spoonful of barbecue sauce. We had to keep several jars of barbecue sauce in the cabinet. My sister sat me down, and after our mind meld she told me that we were going to have a baby brother.
+My mother gave birth to Samson Ichiro Takeshima while I was in first grade. His middle name means "first son." All the nurses at the hospital took turns coming to see him when he was born—they had never seen a Japanese baby before. Sam was covered with bruiselike marks on his backside, the way Japanese babies sometimes are. Nobody had hit him, that's just the way their bodies are. It was funny how so many people ignored my mother, but they were all fascinated by this little Japanese baby. Then, when he grew up, they would probably ignore him and treat him like an ant! I liked to watch the nurses leaning in toward the glass, cooing over little Samson. I was proud of him because I thought he was the cutest baby in the world.
+Not long after my mother brought him home from the hospital, she returned to work at the factory. She was assigned a late shift at that time and never finished working until mid-evening. Mrs. Kanagawa took care of Sam during the day while Lynn and I were at summer school. Lynn wanted to go to summer school so one day she could graduate high school early. I had to go to summer school because my parents made me. After school we would run feverishly home to take care of our new brother.
 
-alley in the middle of the state. My father's friends always gave us coins and told us what songs to play on the jukebox.
-3.Mrs. Chan, the Chinese widow from down the street. We'd helped her plant tomatoes in her yard earlier that summer. By the way, she was the one who could take out her top teeth.
+At night Lynn, Sam, and I would lie outside in the empty street and watch the stars. Sam would lie in the middle as Lynn and I chanted, "Kira-kira, kira-kira."
+One hot night our father was staying overnight at the hatchery, which he did sometimes to save driving time and get more sleep. Our mother was already in bed. We snuck outside in our pajamas and lay in the middle of the street. I liked wearing my pajamas outside. Someday
 
-4.Snow. Making angels and snowmen was fun. Sometimes our father played with us. Once, our mother came outside, and Dad actually threw a snowball at her. I thought she would faint, but after a long pause she smiled slightly.
-My parents. They worked regular hours in Iowa. Here in Georgia they planned to leave for work every day very early in the morning. Our father would work two jobs, and our mother would work overtime if it was available. I already missed them.
+when I was a grown-up lazy person, I would wear my pajamas whenever I wanted. I liked to ask Lynn questions, because she knew so many answers.
+I said, "What would it feel like if all the stars were made of bits of ice and they fell from the sky and landed on us?"
+
+And Lynn said it would feel nice. How did she know that? Because she knew everything!
+I asked her, "What would happen if all the tea in China suddenly fell from the sky and landed on us?"
+She said that would feel nice too.
+
+Finally, we got sleepy and went inside. Our bedroom now contained two beds and a crib. When Lynn needed to study, she used the kitchen table. Some nights I liked to put Sam on my little bed so he could sleep with me instead of alone. I did not want the oni—ogres who I knew guarded the gates of hell—to take my brother in the night. I hugged him to me all night. When he was one year old, I remembered something: At some point since he had been born, I had lost Bera-Bera and never even noticed.
