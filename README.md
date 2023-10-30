@@ -1,106 +1,79 @@
-C H A P T E R 4
+C H A P T E R 5
 
 
-OUR APARTMENT BUILDING in Chesterfield was one story, shaped like a U around a courtyard. The inside of our apartment consisted of two very small bedrooms, a living room, a kitchen, and a bathroom. The wall- paper in the kitchen was dirty and peeling. Mold grew on the wall in the bathroom. Lynn and I followed our parents from room to room.
-Our mother was obviously unhappy, which made our father unhappy. She didn't complain, but we could all tell how she felt because she wore a look like she did when she had a headache. Our father said, "Kiyoko, we'll make part of the living room into your sewing area. That'll be nice." She didn't answer. He said, "There's a free refrigerator here!" She still didn't answer. He said, "I'm going to paint the girls' room white with pink trim!"
-Finally, she spoke. "There's only space for two small beds and one small desk in their room. Where will we put Katie's desk when she starts school?"
-"Let me think about that," he said. "We'll have to put it in my sewing area."
-Nobody answered. I felt guilty because my future desk would ruin her sewing area. I didn't even want to go to school, anyway. I forgot to think nonsense words. That's why my mother was able to read my mind and know I felt guilty. She pulled me to her and hugged me. "It's not your fault!" she said, suddenly cheerful.
+SAMMY WAS THE calmest baby in the world. He hardly ever cried. Lynn took, care of me, and I took care of Sammy. And we all took care of one another. It's hard to believe that for the next couple of years nothing happened. It was wonderful. We spent all our spare time with one another. In my sister's diary entries from those years she chronicled what days Sammy learned how to walk and talk, what our homework assignments were every night, what time our parents got home from work, and any other details she could think of. She had the neatest handwriting in the world. Sometimes I would watch her write in her diary, and I was amazed at how perfect her writing was.
 
-A swing-set frame sat in the middle of our courtyard, but there were no swings. Some of the kids liked to climb on the frame. Everyone played outside all the time because there was nothing to do in our small apartments. When the fathers wanted to talk outside, they sat on the curb in front of Mr. Kanagawa's apartment. He was sort of their leader.
-His wife, Mrs. Kanagawa, didn't work, so when fall came, she took care of the preschoolers all day. I could have gone to kindergarten, but when I went for one week, I cried and screamed so much that my parents
-
-thought maybe I shouldn't start school until first grade. There were three of us preschoolers, but the other two were younger than me, so I played by myself. I could read and write a little bit, I could color or jump rope alone, but mostly I played with Bera-Bera. He chattered on and on, even when I was trying to take my nap.
-At 3:30 each afternoon, I would watch out the window until I saw Lynn walking down the street—there were no sidewalks in our small town. I would run outside to meet her. Mrs. Kanagawa said I was like Lynn's pet dog.
-Most days in southern Georgia were warm and humid. After school Lynn, some of the other kids from the residence, and I used to lie about and stare at the clouds. If it was cool enough, we would play dodgeball. At night before we went in for bed, the parents would sit on the stoop and we children would either play or lie on our backs and watch the Milky Way. Watching the sky was all Lynn's idea. Just as Mr. Kanagawa was the leader of the fathers, Lynn quickly became the leader of us kids. She was a big believer in watching the sky. She pointed out that if beings from outer space ever came, they would probably want to talk to us. So we should keep our eyes open.
-Some nights before bed Lynn and I would make our wishes. First we made selfish wishes, and then we finished with unselfish wishes. One night, though, Lynn said, "Let's just make selfish wishes tonight."
-That seemed bad, so I said, "Okay." "You start."
-"I wish for a bed with a canopy and a box of sixteen crayons instead of eight."
-"I wish that I'll go to college on a scholarship someday. I wish I'll be homecoming queen in high school. I wish we could afford a nice house."
-
-"I wish we had a better hot-water heater so the water wasn't so cold all the time."
-
-She didn't say anything. She probably felt bad, like me. I felt like maybe we should make some unselfish wishes.
-
-She said, "Maybe we can each make one unselfish wish." "I wish for a house for you and for Mom."
-"I wish you would be happy forever."
-That left our father. I didn't know what he wanted most. It seemed the only thing he wanted was to take care of us. Every time it was his birthday, we got him aftershave lotion that our mother paid for. He always seemed to like it.
-I said, "I wish Dad never loses his hair like Grandpa did before he died."
-
-The last thing before we went to bed, Lynn and I would talk about what we should spend our money on the next day. Every weekday our father gave us a nickel to get ourselves a treat. But that night Lynn said, "From now on we're going to save our nickels to help Mom and Dad buy our first house. That way, instead of just wishing for a house, we're helping to really get one."
-
-That was a hard thing to agree with, but I didn't argue because Lynn was boss. Usually when Lynn got home from school, we would go to the market, where we studied the treats for a long time before picking out what we wanted: often a powdered-sugar doughnut. Then we would walk along the highway eating. It was sad to think all that was over, but I guessed a house would be worth it.
-"Good night, Katie," she said. "Good night."
-
-During the autumn the sultry air made us tired but not too tired. If it was too hot, we took a nap before supper. Then Lynn would read to me. Since she was a genius, she could read anything, even Encyclopaedia Britannica. We had the "P" volume from Encyclopaedia Britannica that somebody had left behind in our house in Iowa when we moved in. We planned to read it all the way through. Our other favorite book was Silas Marner. We were quite capitalistic and liked the idea of Silas keeping all that gold underneath the floorboards.
-
-Whenever Lynn was late from school, I would cry. Mrs. Kanagawa would tell my mother whenever I cried. My mother said I was a crybaby, but Lynn said I was actually happy because it was my nature to be so, just like it was Lynn's nature to be a genius. It was also Lynn's nature to be a little bossy. Mrs. Kanagawa told me that.
-Lynn didn't seem to be making many friends at school. So she spent a lot of time with me. That was the way I passed the first year in Georgia: waiting all day for Lynn to come home and then playing with Lynn until bedtime. When summer came again, we played all day and all night until bed.
-
-By the time I was six and ready to start school, my accent had already become very Southern. I no longer called my sister "Lynn," I called her "Lee-uhn." I was kind of a celebrity in my neighborhood, the little Japanese girl who said "you all" instead of "you," and "You don't sah- eee" instead of "Really?" Sometimes people would pay me a few pennies to talk to them. My sister encouraged this enterprise, and soon we were rich.
-We kept the money in a moldy hole in the tile under the bathtub. Once a month we would count it.
-
-The day before I started first grade, Lynn sat me down for a talk. She gave me talks only when something very, very serious was happening. She always told me the truth and didn't treat me like a baby. It was she and not my parents who'd first told me we were leaving Iowa.
-We sat cross-legged on the floor in our room and held hands and closed our eyes while she chanted, "Mind meld, mind meld, mind meld." That was our friendship chant.
-
-She gazed at me solemnly. "No matter what happens, someday when we're each married, we'll own houses down the block from each other. We'll live by the sea in California."
-That sounded okay with me. "If y'all are going to live by the sea, I will too," I said. I had never seen the California sea, but I imagined it was very pretty. She leaned forward then, and I knew she was going to get to the point of this talk.
-
-"Have you noticed that sometimes people won't say hello to Mom when we're out shopping?"
-"Uh-huh."
-"Well, some of the kids at school may not say hello to you, either." "You mean because they don't know me?"
-"No, I mean because they don't want to know you."
-
-"Why wouldn't they want to know me?" Who wouldn't want to know me? This was a new idea for me. Our father had always thought we were quite amazing, and Lynn, of course, had always thought I was perfect, so I thought of myself as rather amazing and maybe even perfect.
-"Because, there's only thirty-one Japanese people in the whole town, and there's more than four thousand people in the town, and four thousand divided by thirty-one is . . . a lot more of them than of us. Do you understand?"
-"No."
-Lynn's face darkened. That was kind of unusual. "Haven't you noticed that Mom and Dad's only friends are Japanese?"
-"I guess so."
-"That's because the rest of the people are ignoring them. They think we're like doormats—or ants or something!" Now she was really angry.
-"Ants?"
-
-She suddenly reached out and hugged me to her. "You tell me if anybody treats you like that, and I'll take care of it!"
-"Okay." Sometimes Lynn didn't seem to make sense. That was because I was so young and she was such a genius.
-Then she kissed my face and said, 'You're the most wonderful girl in the world!"
-
-Right then my mother came in with scissors to chop off my long straight hair. This was a ritual all the local Japanese mothers performed the day before they sent their daughters off to school for the first time. My mother cut my hair to my chin and made me sleep in pin curls all night. This was okay with me because Lynn wore curls during the school year, and so I knew it was what big girls did. But when I woke up and took out the bobby pins, I was too shocked even to cry or scream or stomp around the house. I looked like a feather duster! After the shock wore off, I was ready to cry and scream and stomp. "I'm not going to school!" I screamed. "I'm not!" I stared in the mirror, closed my eyes, and stared again. I stomped one foot and then the other. Lynn gaped at me. She looked kind of half amused and kind of half horrified.
-
-My mother "fixed" my hair by combing it. She said I looked like Ava Gardner, who Lynn said was a beautiful famous actress with about seventy thousand boyfriends. If she was so famous, why had I never heard of her? Still, I liked the idea of looking like a movie star. I calmed down a bit. My father said, "You look like ... you look like ... well, you look awfully cute!" It was the middle of the night, because that's when my parents went to work. They were both running a little late so that they could spend time with me on my first day of school.
-My mother put me in a yellow chiffon party dress. I liked the dress. And I was starting to like my hair. As a matter of fact, I started to think I looked quite ravishing. After my parents went to work, I just sat there and wouldn't move in case my hair got mussed. I wouldn't even let Lynn try to comb my hair because it was already perfect. When Mrs. Kanagawa came over to check on us, she oohed and aahed over how cute I looked.
-I felt like an empress on the way to school. I wasn't even nervous as we walked on the shoulder of the road to school. Lynn was just wearing a jumper, but her hair was curled like mine. She stopped when we stood across the street from the school.
-"That's it?" I said. The school wasn't any bigger than our little apartment building.
-"That's it," she said.
-
-I was a little disappointed. I didn't understand what all the commotion had been about or why I was wearing my best dress.
-When we walked into the schoolyard, I saw that all the other girls were dressed more like Lynn, in jumpers or plain skirts with white blouses. Lynn walked me to my class line, where I stood on the number— Classroom #100—by myself. All around me girls were playing and
-talking. They all wore curls, nhưng no one's hair was as curly as mine. Finally, the bell rang, and about a dozen kids lined up behind me.
-
-Somebody tapped me on my shoulder, and when I turned around, the girl right in back of me said, "Are you Chinese or Japanese?"
-"Japanese," I said.
-Another girl called out, "What's your native name?"
-I wasn't exactly sure what she meant, but I said, "Natsuko." That was my middle name. It means "summer"—when I was born. My sister's middle name was Akiko, which means "autumn"—when she was born.
-Then a girl said to me, "What happened to your hair?"
-I could tell she wasn't insulting me; she was just curious. I felt my face grow hot. I didn't answer.
-Then the teacher came to walk us into class. She smiled at my dress and said, "Going to a party?" I would have gone home right then, but I wasn't sure I could find the way without Lynn.
-When class opened, the teacher said everyone could sit where they wanted, just for today. All the girls screamed and giggled and rushed this way and that around me. Then they all sat down. At recess I stood in the middle of the schoolyard in my party dress. Once, two girls from my class walked by not far from me, and I called out, "School sure is boring, isn't it?" but they ignored me. Lynn came out to stand with me. She said she'd stayed inside a few minutes after the bell because her teacher wanted to tell her what a good girl she was.
-
-Later that afternoon, when I didn't know an answer, my teacher looked disappointed and said, "I've heard your sister is very smart." I didn't hold
-
-this against Lynn, though. I was proud of her.
+Occasionally, my uncle brought us on camping trips. Lynn said that his camping trips were the most fun thing she ever did. I agreed with her about that. She asked me, "Do you agree with me all the time just because I say so or because you really, truly agree with me?" I didn't see the difference between the two things, so I just said I didn't know.
+Sometimes, in case she became a famous writer, Lynn practiced writing little stories in her diary:
 
 
-Shortly before I'd started first grade, my mother had started to gain a lot of weight. She peed a lot, she threw up a lot, and she drank a lot of water. She ate weird things, like spoonful after spoonful of barbecue sauce. We had to keep several jars of barbecue sauce in the cabinet. My sister sat me down, and after our mind meld she told me that we were going to have a baby brother.
-My mother gave birth to Samson Ichiro Takeshima while I was in first grade. His middle name means "first son." All the nurses at the hospital took turns coming to see him when he was born—they had never seen a Japanese baby before. Sam was covered with bruiselike marks on his backside, the way Japanese babies sometimes are. Nobody had hit him, that's just the way their bodies are. It was funny how so many people ignored my mother, but they were all fascinated by this little Japanese baby. Then, when he grew up, they would probably ignore him and treat him like an ant! I liked to watch the nurses leaning in toward the glass, cooing over little Samson. I was proud of him because I thought he was the cutest baby in the world.
-Not long after my mother brought him home from the hospital, she returned to work at the factory. She was assigned a late shift at that time and never finished working until mid-evening. Mrs. Kanagawa took care of Sam during the day while Lynn and I were at summer school. Lynn wanted to go to summer school so one day she could graduate high school early. I had to go to summer school because my parents made me. After school we would run feverishly home to take care of our new brother.
+Once Upon a time a funny witch cast a spell on all the world's creatures. Suddenly, all the animals that used to be able to fly could only walk and all the animals that used to walk could now fly. So you saw horses, soaring through the sky and preening on rooftops', you saw birds by the thousands running through the streets and along highways. And the fish, don't even mention the fish! The fish learned to drive and the humans lived in the sea. The End.
 
-At night Lynn, Sam, and I would lie outside in the empty street and watch the stars. Sam would lie in the middle as Lynn and I chanted, "Kira-kira, kira-kira."
-One hot night our father was staying overnight at the hatchery, which he did sometimes to save driving time and get more sleep. Our mother was already in bed. We snuck outside in our pajamas and lay in the middle of the street. I liked wearing my pajamas outside. Someday
 
-when I was a grown-up lazy person, I would wear my pajamas whenever I wanted. I liked to ask Lynn questions, because she knew so many answers.
-I said, "What would it feel like if all the stars were made of bits of ice and they fell from the sky and landed on us?"
+I think the whole reason she wrote that story was that she loved the idea of living in the sea. That was one thing that never varied about Lynn: her love of the sea. Living by the sea in California was what she looked forward to second most in life, after going to college. Owning our own
 
-And Lynn said it would feel nice. How did she know that? Because she knew everything!
-I asked her, "What would happen if all the tea in China suddenly fell from the sky and landed on us?"
-She said that would feel nice too.
+home was third for her, and first for our mother.
+Every week that passed was nearly the same. School was boring and homework was boring. Playing with my brother and sister was fun. That's the way the days went, with no surprises.
+Everything started to change the winter I was ten and a half. One unusually warm day in January all the kids from the apartments were playing dodgeball after school. Lynn was in charge, as always. She said, "Katie, you stand there. Toshi, you stand here." And so on. She chose a little boy to stand in the middle.
+The boy flung the ball at Lynn. That wasn't very smart, because Lynn was quick. But the ball flew up and hit her chest. She staggered back. Everyone except me laughed. My sister got almost cross-eyed, and everybody laughed more. I didn't laugh because I knew Lynnie better than anyone.
+"Lee-uhn!" I said. I ran over to her. She swayed a bit but said, "I'm fine." "What happened?"
+"I don't know. It seemed swirly for a second." "What seemed swirly?"
+"Everything."
+I followed her inside. She went right to bed and slept through dinner.
+She wasn't able to help me with my homework that night. That worried her. I got straight C's at school. So far I had never gotten a B or a D in any subject. My father said that "C" stood for "consistency" and that he was very proud of me, so long as I was doing my best. I guess that in terms of grades I was just as consistent as Lynn was, which, when you thought about it, was surely something to be proud of Lynn got straight A's. She loved school.
+The next day, however, she didn't even go to school. Even when she was
 
-Finally, we got sleepy and went inside. Our bedroom now contained two beds and a crib. When Lynn needed to study, she used the kitchen table. Some nights I liked to put Sam on my little bed so he could sleep with me instead of alone. I did not want the oni—ogres who I knew guarded the gates of hell—to take my brother in the night. I hugged him to me all night. When he was one year old, I remembered something: At some point since he had been born, I had lost Bera-Bera and never even noticed.
+sick, she usually begged our mother to let her go to school. This was the first time I'd ever seen her happy to stay home. When I got home, a doctor was just leaving. Mrs. Kanagawa was there. She said the doctor had put Lynn on iron pills.
+
+At dinner that night my father said he thought maybe Lynn just took after our mother, who also used to get tired a lot. In fact, my mother said that once when she was a child, she had spent almost the whole year in bed from fatigue, and nobody knew why. So I figured Lynn was just going through a phase, the same as my mother had.
+One night, though, she woke up crying. I couldn't remember Lynn crying since the day we left Iowa. When she woke up, she said she'd dreamed that she was swimming happily in the ocean.
+She sobbed. "The sun was shining. Everything was beautiful." "Why did that dream make you cry?"
+"Because it was only my spirit swimming in the ocean, and not really me."
+"What's a spirit?"
+"It's the invisible part of me."
+
+I didn't understand her reasoning at all. First of all, I didn't understand what she meant by "invisible part of me." Second of all, her dream sounded happy to me. But I also knew that Lynn was always right, so I was a little worried. Suddenly, she said, "Don't worry, sweetie, I'm okay. Go to bed."
+So I went to bed.
+The next day was Saturday. She lay in bed all day. She didn't want to be bothered or talked to or anything.
+I said,. "Do you all want me to go get you some candy?" She said, "No."
+
+I said, "Do you all want an apple?" She said, "No."
+I said, "Do you all want some company?" And she said, "No."
+Even with her occasional fatigue, Lynn still managed to help me a lot. The truth was, without Lynn, I probably would have gotten some D's. I didn't understand the point of school. You sat in a chair all day and read words and added numbers and followed directions. You weren't allowed to chew gum. You weren't allowed to write notes—not that I had anybody to write notes to. But, still. And you weren't allowed to talk unless you knew the answers to the teacher's questions.
+Lynn actually liked reading stories and adding numbers. And she actually knew the answers to the teacher's questions. She was fourteen. She had gotten so pretty that the other girls had to take notice of her, if only to be jealous. Of course, Lynn had always been very pretty. Her skin and eyes were radiant, and her hair was strong and shiny. Even though all the other girls curled their hair, she had started to wear hers straight and so long that it touched the middle of her butt. Gregg, the most popular boy in her class, liked her. Finally, one of the popular girls, Amber, broke ranks and became Lynn's first best friend. That is, I felt I was still Lynn's best friend, but Amber was maybe her second best friend. Amber becoming Lynn's second best friend was the other big event that winter.
+
+It did get to be a little annoying. Amber came with us everywhere. She was one of those really girlie girls who paint their fingernails and even their toenails. She said she was going to be a model someday, and she walked very upright. All winter and spring she and Lynn walked back and forth in the living room with books on their heads. Amber said, "This is the way models walk."
+I said, "Seems pretty ridiculous to me!" I looked to Lynn for agreement, but she frowned at me.
+
+Amber had brown hair, which she said she was going to dye blond when she turned sixteen. She had brown eyes instead of blue, which was a tremendous disappointment to her. She stuck out her pinkie when she held a cup. And, worst of all, she was making Lynn weird. For instance, Lynn had started to wear lipstick when our parents weren't around.
+
+Many days Lynn tried to get me to spend time with her and Amber as they walked in the living room with books on their heads, told secrets while sticking out their pinkies, or giggled in front of the mirror while experimenting with makeup. Amber hated camping, so now Lynn didn't want to go camping. The thing was, I still loved camping. I think Lynn's feelings were a little hurt that I didn't agree with her about camping anymore. I felt strange not agreeing with her.
+One day when we were eating roast chicken, I ripped the thigh from the drumstick with my hands. Our parents were at work. Sammy followed my example and ripped a chicken leg in two.
+I said, "Let's see who can put the most food in their mouth at once!" Sammy and I filled our mouths.
+Lynn said, "Katie, that's not very ladylike."
+I couldn't answer because my mouth was full. Sammy and I thought that was pretty funny. When I'd finally swallowed everything, Lynn looked worried. She wiped food from my chin and said firmly, "Katie, you know you're not going to be able to act like that much longer."
+She brought her plate to the sink and left the room. I knew that Lynn was actually trying to help me. Usually when she was trying to help me, I didn't mind. In fact, usually I was eager to please her. But this time I didn't speak to her all the rest of that night. That was the first time I ever shunned her for a whole night. I was waiting for her to apologize, but she never did because she didn't even notice I was shunning her. The next day she wanted me to practice walking across the room with her and Amber, but after awhile I was bored and said so. This hurt her feelings, which made me feel bad.
+
+One weekend it turned out that Gregg and another cute boy from Lynn and Amber's class were going to be going camping near the same place where Uncle Katsuhisa used to take us. Lynn and Amber begged Uncle to take us camping that weekend, and he agreed. The thought of Amber going camping was a bizarre thought indeed. It was hard to picture her sitting around a campfire with a book on her head. She and Lynn wanted the whole family to go camping, for authenticity. That is, they wanted the boys to believe that the whole family just happened to
+
+be going camping at the same time and in the same place as the boys just happened to be going camping.
+My parents had started to work more and more. They used to go camping sometimes, but they never thought about having fun anymore. My father was exhausted from working ninety hours a week. My mother was exhausted from working overtime whenever she could. So they didn't go camping with us that weekend for Lynn and Amber's Great Boy Hunt.
+Uncle, however, brought his whole family, even my Auntie Fumi, who hated camping. She had grown chubbier, and she didn't like the outdoors, maybe because it might muss her beehive hairdo. The whole time we drove, she stared worriedly at the sky, even though there were only a few white clouds.
+
+We parked the truck near the campgrounds and hiked about a mile. Auntie Fumi looked worried the whole time. She kept staring into the forest, as if she thought a tree might fall on her. But she never complained—it wasn't her nature. For a while as we walked I tried to talk to Lynn and Amber, but they were obsessed with a cute dress they had seen in a store. Instead, I walked hand in hand with Sammy or pushed his stroller over the bumpy ground. He thought Amber was stupid too.
+
+When we found our campsite, my cousins David and Daniel and I helped Uncle pitch the tents. Then he put us in charge of starting a fire. He went into the tent with Auntie. David said they were trying to make another baby. He said they did it all the time. I wasn't quite sure what he meant. But years ago when our parents were trying to make Sammy, Lynnie had told me never to go in our parents' bedroom without knocking. She didn't tell me not to listen at the door, however, so I knew trying to make a baby was hard work that required a lot of effort and grunting.
+I turned my attention to starting the fire. It took me several minutes to keep the match from blowing out in the wind, and then the match almost burned me, so I flung it away. I guess when I flung it, it landed on a sleeping bag, because the next thing I knew, David was shouting, "Fire!" David was a devil like me, at least that's what Uncle liked to say.
+
+David seemed excited about the fire. He helped me throw all of our drinking water, as well as all of our sodas, on the sleeping bag, which sizzled and smoked. Finally, when it was charred but wet, we tried to hide it behind a tent since we didn't want Uncle to see it. Then we set our minds to starting a fire again. But in a moment Daniel pointed at the tent, and we saw smoke snaking from the back.
+When we ran behind the tent, smoke billowed into our faces. We tossed mounds of dirt on that weird sleeping bag. Amber and Lynn sat behind the tent, probably telling secrets. They watched the whole event with mild disdain, but I thought I saw a certain yearning in Lynn's eyes, as if maybe she would rather be setting fire to sleeping bags than sticking her pinkie out and telling secrets.
+
+When Uncle and Auntie finally emerged from the tent, Uncle sniffed the air and frowned. Smoke coiled through the air. David and I tried to look innocent. Uncle stamped on the dirt over the sleeping bag until finally the smoke stopped. He started to get annoyed, but then Auntie said to him, "They're just children."
+Uncle needed to walk back to the truck and drive into town to get us water, sodas, and a sleeping bag. To his credit, he only yelled at us for a short time about burning the sleeping bag. When he got back from town, he started the fire, which seemed to cheer him up. Then he announced that he was going to shoot us some rabbits for dinner with a bow and arrow. David, Daniel, and I begged to come. Uncle said we could all watch from a distance if we wanted. He said he could shoot a rabbit from thirty yards. Auntie (holding Sammy), my cousins, and I followed Uncle, with Lynn and Amber following us. They walked arm in arm and whispered the whole time.
+
+We came upon an opening. Uncle Katsuhisa suddenly knelt and moved stealthily forward. Auntie's eyes glowed with pride. He put up his palm to still us, and we stopped. He'd apparently sighted a rabbit that I could not see anywhere. I surprised everyone, including myself, by shouting out, "But Bera-Bera is half rabbit!"
+
+That disturbed Uncle's concentration. He turned to me and opened his mouth, but Auntie spoke first. "She'll be quiet next time." She pulled me to her. I was embarrassed by my outburst. Lynnie and Amber would
+
+think I was being a baby if I was worried about a stuffed animal. I didn't even know where Bera-Bera was anymore.
+I could feel Uncle Katsuhisa move into another zone, he and the bow becoming one. I felt queasy. We walked awhile more, and then he let loose of the arrow, and it screamed forward, piercing its mark cleanly. For the first time I saw the rabbit, still and bloody. That was the last thing I remembered. The next thing I knew, the faces of Lynn, Auntie, the twins, and Sammy were looming over me as I lay on my back. I sat up and saw Uncle holding three rabbits. Their ears were exactly as long as the ears of Bera-Bera. The trees started to spin as I looked at the bloody rabbits. Someone said, "There she goes again!"
