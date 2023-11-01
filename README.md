@@ -1,70 +1,96 @@
-C H A P T E R 7
+C H A P T E R 8
 
 
-MY FATHER'S HOURS changed sometimes. His newest schedule was to work for ten to twelve hours, then eat and sleep a few hours at the hatchery, and then get up and work six hours. When he wasn't working at his main hatchery, he worked at a different one in another town. My mother's current shift ran from 4:30 A.M. to 1:30 P.M., plus three hours of overtime.
-When school let out for the summer, Lynn spent the first week at Amber's house. Mrs. Kanagawa couldn't watch Sam and me that week because she was tending to her sick mother in Oregon. Since I was almost eleven, I felt I was old enough to take care of Sammy and myself all day. But my mother didn't think so. She decided that Sam and I would have to go with her to work every day. We could sleep in the car until her shift ended.
+WHEN WE RETURNED home from the factory, we were surprised to find Lynnie lying in bed. She didn't feel well, so Amber's mother had sent her home. Her temperature was normal, but she looked kind of green.
+"She looks gross," I said.
 
-The poultry processing plant where she worked was in the next town, about an hour from our house. The same man who owned the hatchery for egg-layers where my father mainly worked also owned several processing plants for his roasters and fryers. His name was Mr. Lyndon, and he was the richest man in the county and one of the richest men in Georgia. I'd never seen him, but my father had seen his car once—a Cadillac—and a girl at school said she once saw him from behind. He never came to his processing plants or the hatchery. If there was a problem that needed his attention, he sent an assistant. He was an invisible legend in the county: the big, mean, rich Mr. Lyndon. His great-great-grandfather, his great-grandfather, his grandfather, and his father had all lived in Georgia.
-I thought of him as my mother drove up in the darkness to the processing plant. His wife was supposed to be very beautiful, with fingernails one inch long. Once when President Eisenhower had visited Georgia years earlier, he supposedly ate dinner at the Lyndons' home. Their home was a former plantation mansion. He had torn down the old slave quarters on his property. In its place his wife had hired gardeners to create an azalea garden that was supposed to be gorgeous. Her garden was supposed to be so big, you could get lost in it. Such a world
+"Shut up!" snapped my mother. I stepped back, as if she'd struck me. I had never heard my delicate, polite mother say "shut up."
+"It came on suddenly," Lynn said. "We were eating cookies and talking about school in the kitchen, and all of a sudden, I got sick."
+"Is Amber sick too?" asked my mother.
+"She feels fine. But I feel dizzy when I sit up." My mother turned to where Sammy and I were standing.
 
-as they lived in was difficult to imagine. Someday when we owned a house, I would get my mother an azalea plant so she could start her own garden.
-Previously, my mother used to have to drive my father to his job and then drive herself back to the plant. But now we owned a new car. That is, it was an old car, but it was new to us. Rust was eating away at its paint, but my mother said that in its heyday it had been lovely. She had bought the cheapest car she could find. She didn't want anything to take away from the house she longed to buy.
-I got to sit in front, which was a treat and made me feel like a grown-up. My brother slept in back. I'd sat in front only once before in the truck with Uncle Katsuhisa. You could see everything in the world out the front windshield.
+"You two sleep in the living room tonight. Maybe it's contagious." I drew Sam a step back. My mother seemed to be searching her mind. "Maybe it's the measle? You never had it. Katie either." My mother spoke perfect English, but every so often when she was upset, she slipped. She didn't seem upset on the outside, but I knew she was inside. It was like the time she broke her leg and she kept saying, "I breaked my leg." I drew Sam another step back.
 
-The road was empty, like so many roads we had driven on in my life. The highways in southern Georgia were famous for how dark they were, no light anywhere—no farm lights or streetlights or town lights. We passed a swamp, and I locked the door. The biggest swamp in Georgia was across the state. It was called Okefenokee Swamp, which means "Land of Trembling Earth" in Seminole. Our local swamp was called Brenda Swamp, named after a girl who died there way back before I was born. Her ghost lived in the swamp. It was looking for her parents. I stared out into the darkness, saw the moss hang like drool from the pines. When the wind blew, the swamp did seem to tremble.
+Lynn got tired more often lately. My parents talked about her a lot. Meanwhile, they scolded me, and even Sammy, more and more often. Our parents didn't really have time for us anymore because they liked to spend all their extra energy thinking about Lynn.
+When Lynn felt good, she had a lot of energy, so I never thought of her as sickly. She was the only one of us who ever went to the doctor. The doctor usually gave her suckers, which made Sam and me jealous. Also, she got to stay home from school whenever she was sick. So I had thought of her as lucky. But today she seemed worse than usual.
 
-How I would hate to wander in that murky water for the rest of eternity looking for my parents! I looked over at my mother, but she was lost in thought. I looked back at my brother, who was sleeping peacefully. I looked back out at the swamp and thought of Brenda. She was ten when she died. I thought I saw something move out there, but then I didn't see it anymore.
-I tried to stay awake to enjoy the ride in the front seat, but I fell asleep, and when I awoke, we were slowing down and I saw the first light I'd seen in awhile. Four tall lampposts stood near the fence surrounding the plant. Insects were like death to a poultry plant, so the lights were allowed to shine on the building but no lights could be attached to it. Inside, my mother said, everything was made of aluminum and steel.
+My mother made me take Sam a couple of doors down to watch TV at the Muramotos' apartment. They were the only ones in the apartments with a TV Television was such a treat. Fortunately, the Muramotos liked The Twilight Zone, so we got to watch that every week with them. Now we let ourselves in and sat on the couch with Mrs. Muramoto, who was watching the news. She loved the news because her husband had a low, clear voice, and she said that if he were hakujin—white—he could work as a newsman on TV He wasn't home now. He was working with my father at the hatchery. Sometimes I thought he made his voice sound lower than it was naturally. He liked to sit alone in the kitchen reading the newspaper out loud as if he were a newsman.
 
-There was no wood, even in the chairs and tables in the reception office. Wood attracted insects. There was no vegetation inside the fence.
+"Where's Lynn?" asked Mrs. Muramoto. She was a quiet woman who worked for a tailor.
 
-Poultry was one of the biggest industries supporting the economy of Georgia, but that didn't stop many people who did not work with poultry from looking down on those who did. That and the fact that I was Japanese were the two reasons the girls at school ignored me.
+"She's tired again," I said. I always told people she was "tired," not "sick." We watched the news and a couple of game shows, and then I took Sammy back home. My parents were in the bedroom with Lynn, so I filled the bath for Sam and read to him while he sat in the bathtub. That was his favorite thing: getting read to in the bathtub. After his bath I got his pajamas for him and made up the couch for him to sleep on. Ordinarily, I didn't like to do work around the house, but taking care of Sam was the exception.
 
-Sometimes when Mom and I ran into the girls from my school with their mothers, the other mothers would not even acknowledge mine. My mother did not have to work. My father would have been happy to support all of us; in fact, I think he would have preferred it. But there was the important matter of the house that we needed to buy.
+Unfortunately, if Sam was sleeping on the couch, that would leave the living-room floor for me. I didn't see why we couldn't sleep in our regular beds. If Lynn was contagious, we would get sick just from living in the same apartment. Her germs were probably all over the place by now.
+I took a bath in Sam's old water and laid out some blankets on the living-room floor. When I was a little girl, sleeping on the floor always seemed like a treat. We used to beg our mother to let us sleep on the floor. It was like camping. Now that I was older, the floor felt hard. In a few minutes my mother came in looking annoyed. I knew it was because I hadn't wiped the ring around the bathtub, but I didn't say anything. I was in a bad mood because the floor was hard.
 
-Even within the plant, there was some snobbism. When we first moved here, my mother had started out working in the so-called dirty areas of the plant. That was where the blood and guts and feathers and such were handled. The workers from the clean sections weren't allowed in the dirty sections, and the workers from the dirty sections weren't allowed in the clean sections. The dirty-section workers were the lowest of the low.
-The previous year my mother had been promoted into a clean section, where she worked cutting drumsticks and thighs off the bodies of the chickens. She was good with her hands and she wore gloves while she worked, but even so, little cuts often marred her delicate hands. And her wrists were so sore some days, she could hardly move them after work.
+My mother seemed exasperated. She was kind of crazy about cleanliness. "How many times do I have to tell you?" she said. My father
 
+came up behind her. Even he seemed annoyed with me, and he almost never got annoyed.
+"Katie," he said, "how many times does your mother have to tell you to wipe the ring in the bathtub?"
+"I don't see why I have to sleep on the floor," I said.
+My father's face darkened. I felt a little scared. He never got truly mad at us, ever. That was our mother's job.
 
-She drove into a dirt parking lot outside the fenced area and parked near the few trees. There were already hundreds of cars parked. I looked around. It was so terribly dark. She looked at me. "Keep the doors locked," she said. "I'll come out on my break."
+My mother looked as if she was going to cry. But I was famous for being hardheaded. Maybe it was because Lynn had always let me have my way. So now I pulled the covers over my head. I was shocked when my mother pulled the covers off and yanked me up by my arm. My father rested his hand on her to restrain her. She started crying. I didn't know what was going on: It was just a bathtub ring. My father looked at me sternly. "I want you to clean the bathtub now," he said very quietly.
 
-"Okay" I gazed across the parking lot to the dark highway. "Why can't we sleep inside while y'all are working?"
+I walked into the bathroom and shut the door behind me. I sat on the floor for a few minutes to think, but I was getting sleepy, so I cleaned the bathtub. I had to admit it took only a couple of minutes. When I got out, my parents were in their bedroom. I could hear them talking but couldn't hear what they were saying.
+I stopped at my bedroom and put my ear to the door. All was quiet. I looked around to make sure my parents were still in their room. Then I opened the door. The light was on, and Lynn was staring into space. She didn't even seem to notice when I opened the door.
+"Lynnie?" I said. She turned to look at me, her face blank. "Vail need anything?"
+"Like what?"
+"I dunno. Food?"
+She shook her head. "You're not supposed to be here. I could be contagious."
+"What's wrong with you?"
 
-"You might steal a chicken."
-I knew she didn't mean me in particular, but anyone. There were two things the factory manager possessed a morbid fear of: insects and stolen chickens. Where I might hide this stolen chicken was another matter.
-My mother looked at her watch. "I'm late for my shower. Stay in the car unless absolutely necessary." There weren't quite enough showers for all the employees at once, so everyone was assigned a shower time. My mother got out and hurried toward the plant.
-I locked the doors and climbed in back to be near my brother. I laid his head in my lap. When he was sleeping, he was like a rag doll. Nothing could wake him. I ran my hand over his head. I liked to feel his new bristly crew cut. A long truck moved through the gate at the fence. I could hear the clucking and squawking of chickens. The truck moved behind the building. I couldn't see, but I knew the chickens were being unloaded.
-A big man walked slowly around the building. He didn't see me. Maybe he was checking for people stealing chickens.
+"I don't know. Anemia, I guess. That means I need more iron and have to eat liver. I have to stay in bed all day tomorrow. You and Sam have to go with Mom again."
+"We could stay with you."
+"Dad says no, you might get sick." "Anemia is contagious?"
+"No, but maybe I have something else." "Like what?"
+"The doctor doesn't know."
+Sometimes when I was younger and I got sick, my parents wouldn't let Lynn in the room with me. But she used to sneak in anyway, so she could take care of me. She used to worry about me quite a bit. Now I went into the living room and lay on the floor next to the couch. I got up and checked to see if my brother's forehead felt either too hot or too cold. He felt perfectly normal.
+By the time I woke up, my father had already left for work. It was still dark. My mother woke Sam and me and told me to dress my brother. She said our auntie Fumi, who didn't work, was going to drive out and spend the day with Lynn. It must have been serious if Lynn couldn't even take care of herself.
+Sam was half asleep as I dressed him. He whined a bit: "Why do I have to go? It's hot in the car."
+"I know. Go get your toothbrush for later." He hurried away—he always listened to me.
+I grabbed the lunches our mother had made for us. We followed her out of the house and got quietly in the car. I decided to sit in back. I didn't feel like being grown-up today. As we drove along the dark highway Sam leaned against me as he slept. We passed the swamp, and I watched for Brenda, the little girl who had died. I also watched for swamp lights, the weird lights that locals were always saying they saw in
 
-Another car drove into the lot and parked near me. A woman about my mother's age and a girl about my age got out. The girl glanced at me, hesitated, and then walked over. I lowered my window. Her mother glanced over but kept heading toward the plant.
-"Hi," said the girl. "Hi."
-"What're you doing?" "Waiting for my mother. What're you all doing?"
-"I do the laundry every morning. Then my uncle comes and picks me up on his way to work, and I hang around his office." She paused, then repeated proudly, "My uncle works in an office."
-"What kind of office?"
-"Insurance." She spoke casually but was obviously very proud. I wished
+the swamps.
+Sometimes I thought I saw something moving through the trees. But then I would realize that I had just seen moss swaying in the wind. Then I really thought I saw her! She was a pale girl running in a white dress with a dog at her side. I lowered the window. The humid air rushed in. Brenda wove through the trees before moving deeper into the swamp, so I could no longer see her. I turned to check whether my mother had seen, but she was staring straight ahead.
+My mother hadn't said a word since we'd left home. I could tell that she was worried about Lynn. And even though I couldn't see him, I knew that my father, probably hard at work right now, was worried too. The measles did not seem like such a horrible thing. I'd known many children who had gotten the measles. From what I'd heard, anemia was not so terrible either. Auntie Fumi had been anemic once. And yet my parents were very worried. I decided that was because they loved us so much, even though we weren't always good. Lynn was better behaved than I was, of course, and so was Sam. But even if I got sick, I knew my parents would be very worried about me.
 
-my father worked in an office! "I do the load for the shift that gets off at four thirty in the morning. Then my uncle brings me back during his lunchtime and I do one more load, and then my mother takes me home. I'm saving for a new school dress."
+I was sleepy, but at the plant I tried to stay awake so that I could watch out for the thug. My mother hadn't said anything else about him. She hurried inside for her shower. A short time later the laundry girl's mother parked across the lot. I remembered that my mother had said not to talk to the girl. But she waved at me, so I had to wave back. Then she walked over, so I had to lower the window. She peered into the car at Sam. "I have a brother too, but he's older," she said.
 
-"Can I come in and see the plant?" I said.
-"You might steal a chicken!" she said, as if scolding me. I saw the man walking around the building again. She saw me studying him and said, "That's the thug."
-"What's a thug?"
-She looked at him. He was watching us now, but then he kept walking. She leaned toward the car. "Didn't your mother tell you? The workers are trying to unionize. The thug works for Mr. Lyndon. He discourages union activity. He doesn't let any of the employees gather in the parking lot, even if they're not talking about the union." She checked her watch and said, "Gotta get the first load going!"
-She ran to the building and disappeared around a corner. Insects clustered around the lights at the fence. I wished we would get a house soon so my mother could stop working here. After a pause I decided that I wished that the girl I'd just met would get a house too, and maybe a new dress. My leg was falling asleep, so I shifted Sammy's head in my lap. He looked so cute. I rolled up the window so the thug couldn't get in and harm him.
+I had to talk to her now, because it would have been rude not to. "His name is Sam. I'm Katie Takeshima."
+"I'm Silly Kilgore."
+"What kind of name is Silly?"
+"It's short for Sylvia." Silly was pale, with kind of messy pale hair and pale eyes. Very skinny, like me.
+"Oh. My name is short for Katarina." Actually, it was short for Katherine.
 
-When I next woke, the hot sun was slanting through the windshield. I saw that Sam was still asleep. We used to joke that if nobody remem- bered to wake him, he would just sleep through the day and night and not get up again until we called him for breakfast. Lynn was like that too. That girl could sleep. Sometimes she slept for twelve hours in a row. But me, I slept restlessly a lot, and sometimes it seemed I barely slept at all. It was funny, because even though I was bad a lot, I also worried a lot about how bad I was. When I worried, I couldn't sleep.
-Perspiration spotted Sam's forehead. I wiped him off with my shirtsleeve. I opened a window, and a muggy gust of air shot across my face. If I'd known how to drive and had the keys, I would have driven the
+I wasn't exactly precisely telling a lie, because even though my birth certificate said Katherine, Lynn had always told me that my real name was Katarina.
+"Are you going to come here every day?"
+"Just for a week. Then I have to go to summer school because my grades aren't so good. I'm going to go to Africa and study animals when I get big."
+"I'm going to be a doctor." "Can girls be doctors?"
+"I can."
+"Really?" I paused. That was news to me. I had never seen a girl doctor. I looked around. "Where's the thug?"
+"They had some trouble at the other plant. He had to go there." She added proudly, "My mother backs having a union."
+I didn't answer.
+"I'd better get to work," Silly said. She ran off.
+I slept for a while, woke up and fed Sammy a little rice, slept awhile more, and then woke up for good as the sun rose over the fields. I decided to walk through the gate and explore the plant.
+The plant was a long rectangular building with a few windows high up the walls. On one side of the plant a garbage can lay in the dirt. I set it up and climbed on it. If I stood on my tippytoes, I could just see into one of the narrow windows. Everyone inside was dressed in white. At first I couldn't pick out my mother, but then I saw her small back. She was the tiniest worker in the factory She expertly sliced a couple of legs off the body of a chicken. Then she sliced the drumsticks from the thighs and sent the drumsticks down one conveyor belt and the thighs down another. At the exact moment that she finished, another chicken arrived and she cut the legs off it. Over and over. I couldn't see her face, but the faces of the workers I could see were blank, perfectly so. Most of the
 
-car into better shade. Then I saw my mother rushing across the asphalt surrounding the plant. She seemed even smaller than usual as she hurried over. Lynn was already a few inches taller than our mother. I pushed the car door open.
+workers were women.
+I could just make out a sign titled THE THREE RULES OF MEAT PROCESSING. Underneath the title it said: 1. HYGIENE. 2. HYGIENE. 3. HYGIENE. My mother sometimes said proudly that this plant was the cleanest in Georgia. Some of the poultry plants were supposed to be filthy. She said that the chickens at this plant were special gourmet chickens that Mr. Lyndon's wife served guests at the mansion. We'd never eaten any of these special gourmet chickens. Every Christmas there was a lottery and an employee won two chickens. But my mother had never won.
+I heard a cracking sound, and the next thing I knew, the corroded metal of the garbage can began to collapse and I fell to the ground. I lay on the ground for a moment, the way my father had taught me to do when I fell. "Make sure you're not hurt before you move," he had told me. When I sat up, I saw my legs were bloody. The thug was standing over me frowning. He had permanent frown lines between his eyes, and he was taller even than my father.
+He looked behind me, and I saw another man approach. I felt sick to my stomach.
 
-"I was so worried!" she said.
-"I saw the thug walking!" I said. "What thug?"
-"The man who works for Mr. Lyndon to keep anyone from gathering and doing union activity."
-"Who have you been talking to?" "A girl. I kept the door locked!"
-"You are not to talk to that girl again. And you are not to call that man a thug. He is an employee of Mr. Lyndon. Do you understand me?"
-'Yeah—yes. But, Mom? What's 'union activity'?"
-"A union is when all the workers get together and fight the very people who have provided them with a job and the very people who pay the employees money to give them the means to buy a house someday." "So a union is bad?"
-"It's wrong to fight the people who are trying to help you."
-She looked at Sam sleeping so peacefully. I felt proud of myself that we were doing fine. She noticed the sweat on Sam's face and got in and started the car. She pulled directly under a tree but kept the motor running. She tried the air conditioner. Sometimes it worked and sometimes it didn't. This time it worked. The noise was loud, though. Once, we had turned on the air conditioner and driven through various neighborhoods where my mother could admire the houses. Now she lay back against the car seat. I noticed a few white hairs that I'd never seen before. She was thirty-three, two years younger than my father. She was starting to look tired all the time. Usually when my parents were home, they were eating or sleeping. They didn't eat with us because we ate
+Then Silly ran up. It was a regular convention! "Hi, Uncle Barry," she said to the man who'd just arrived. Her uncle looked down on me and helped me up. He was wearing a real button-up shirt, and he held himself with a kind of pride.
+"Are you okay?" asked Silly's uncle Barry. The thug said, "What's going on here?" "They're just little girls, Dick."
+Dick scratched at a bite on his cheek. "Well, get them out of here." Barry took our hands and led us away from the plant.
+Silly said, "This is my new friend Katie." He stopped and shook my hand, just as if I were a grown-up. "Nice to meet you, Katie."
+His button-up shirt made me feel I should be very polite. "Nice to meet
 
-earlier. We never did anything together anymore.
-Later I read some books to him, and afterward we slept some more. When our mother drove us home, we were tired from doing nothing all day in the hot car. My mother smelled funny. The factory workers weren't allowed to take unscheduled breaks, so they all wore pads in case they needed to use the bathroom. It smelled like my mother had used her pad. I decided that someday when I was rich, I was going to buy the factory and let the workers use the bathroom whenever they wanted.
+you, sir."
+Then he let go of my hand, and he and Silly got into his car. I watched them drive off. Her uncle's car was pretty nice. It looked like it was only a couple of years old.
+Back in my mother's car Sam shunned me for a few minutes because I had left him alone. But he never stayed mad for long. He was little Mr. Sunshine. That was why I loved him so much. Dick the thug had paused by the building, watching me. I locked the doors.
+Over the next few days Silly tried to work as fast as she could so she had time to come out and talk to me. We shared our rice balls and seaweed with her, and she shared sandwiches with me and Sam. The bread on the sandwiches was kind of amazing. You could tear out the white middle section and press it into a hard ball of dough before you ate it. Or you could twirl it into long strings and wrap it around your tongue. Sammy had never seen bread before. He loved it.
+
+It turned out that Silly's father had died shortly after she was born. Her uncle—her father's brother—was like a father to her. Her uncle had owned a sign store once, but it had gone out of business. Silly needed to work to help pay for her school clothes. In her spare time she also helped her mother fold union flyers.
+She made me feel lazy. I did manage to clean up after myself a little, but other than that I didn't do much of anything except take care of Sammy. The area around my bed was the messiest part of the room, except for the area under my bed, which was even worse. Every time it was my turn to do the dishes, I always had an excuse—or else, if Lynn felt well, I let her do them for me. And yet my parents could afford to buy me my school clothes.
+Silly and I exchanged phone numbers. I promised her she could use Lynn's bicycle and we would go riding. She was the only kid I knew who did not even own a bicycle!
