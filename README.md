@@ -1,96 +1,102 @@
-C H A P T E R 8
+C H A P T E R 9
 
 
-WHEN WE RETURNED home from the factory, we were surprised to find Lynnie lying in bed. She didn't feel well, so Amber's mother had sent her home. Her temperature was normal, but she looked kind of green.
-"She looks gross," I said.
+LYNN GOT BETTER and didn't get sick again for so long that I figured everything was fine. My parents still kept a careful watch on her, but even they seemed more relaxed. On my eleventh birthday I got to invite Silly over. I was so excited, I didn't even mind that my mother let Lynn invite Amber over for my birthday. I baked a cake, which was lopsided but tasty, and Silly and I spent the whole day calling ourselves the Shirondas and singing and dancing wildly to the radio. We made up special dance steps and pretended we were on The Ed Sullivan Show. Amber acted like we were stupid. She tried to get Lynn to think we were stupid too. But Lynn thought we were "too cute for words." That was her new phrase for me. She and Amber walked around with their heads held high. They didn't even need books on their heads anymore. They just naturally walked like that! Amber was mad because she wanted to go down to the schoolyard in case any cute boys were hanging about. But my mother said Lynn had to stay home because it was my birthday.
+So they just sat in the living room and held their heads high while Silly and I danced. Then Silly and I told ghost stories. Then we dressed up Sam in funny clothes until my mother scolded us. Finally, we went outside to wait for Silly's mother to pick her up. I walked to the street with her to help her carry her water jugs. She lived in an area just outside of town where many people did not have running water, so whenever she came over, she filled big jugs to take home. I asked my mother to come outside so she could bring a jug too. She frowned but agreed. I knew she'd frowned because water didn't grow on trees.
 
-"Shut up!" snapped my mother. I stepped back, as if she'd struck me. I had never heard my delicate, polite mother say "shut up."
-"It came on suddenly," Lynn said. "We were eating cookies and talking about school in the kitchen, and all of a sudden, I got sick."
-"Is Amber sick too?" asked my mother.
-"She feels fine. But I feel dizzy when I sit up." My mother turned to where Sammy and I were standing.
+We sat on the front stoop. Across the street some grown-ups sat talking and laughing. Some kids from another apartment played kickball in the street.
+Silly's mother, Mrs. Kilgore, drove up and got out of her car. She and my mother nodded politely at each other and tried to think of something to say. Mrs. Kilgore was a no-nonsense woman. She didn't believe in small talk. She looked at my mother and said, "There's a union meeting next Wednesday at the church on Frame Street."
 
-"You two sleep in the living room tonight. Maybe it's contagious." I drew Sam a step back. My mother seemed to be searching her mind. "Maybe it's the measle? You never had it. Katie either." My mother spoke perfect English, but every so often when she was upset, she slipped. She didn't seem upset on the outside, but I knew she was inside. It was like the time she broke her leg and she kept saying, "I breaked my leg." I drew Sam another step back.
+"Yes," said my mother coolly. My mother was scared the union supporters would get them all fired, even her. She wanted a house, and she didn't care if she couldn't use the bathroom during work or if her fingers were so stiff that she couldn't move them when she got home. If that's what a house cost, she would pay the price.
+"The meeting's at seven thirty in the evening," said Mrs. Kilgore. "Wednesday evening is bad for me," said my mother.
+They left then. "Mom, why is Wednesday bad for you?"
 
-Lynn got tired more often lately. My parents talked about her a lot. Meanwhile, they scolded me, and even Sammy, more and more often. Our parents didn't really have time for us anymore because they liked to spend all their extra energy thinking about Lynn.
-When Lynn felt good, she had a lot of energy, so I never thought of her as sickly. She was the only one of us who ever went to the doctor. The doctor usually gave her suckers, which made Sam and me jealous. Also, she got to stay home from school whenever she was sick. So I had thought of her as lucky. But today she seemed worse than usual.
+"That woman makes too much trouble." My mother pulled me down on the stoop beside her. I thought she was going to tell me Silly couldn't be my friend anymore, but instead, she took my face in her hands and frowned. "Did you want to grow your hair long again?" she said. I'd expected her to say something more serious, but I didn't know what.
 
-My mother made me take Sam a couple of doors down to watch TV at the Muramotos' apartment. They were the only ones in the apartments with a TV Television was such a treat. Fortunately, the Muramotos liked The Twilight Zone, so we got to watch that every week with them. Now we let ourselves in and sat on the couch with Mrs. Muramoto, who was watching the news. She loved the news because her husband had a low, clear voice, and she said that if he were hakujin—white—he could work as a newsman on TV He wasn't home now. He was working with my father at the hatchery. Sometimes I thought he made his voice sound lower than it was naturally. He liked to sit alone in the kitchen reading the newspaper out loud as if he were a newsman.
+For a while she'd given my hair a permanent every few months, but something about the permanent solution made my hair fall out. So now I was back to pin curls every night. "I hate pin curls!" I said. She didn't answer. The day was fading into evening. There were no streetlights, but the street was lit by the lights from the apartments and from a motel down the way, the sign flashing on and off, on and off. M-O-T-E-L, in aqua neon.
+"Your summer school teacher said you got a good score on your achievement test."
+"Yeah." She frowned, and I said, "I mean, yes."
+"Nobody understands why you don't get better grades." "I'm trying."
+'Your father is very disappointed." That surprised me. I didn't think my father was ever disappointed in me. She patted my knee and stood up. She had always seemed younger than the other mothers, partly because of her size, but also because her face possessed a childlike quality. But tonight she grunted when she stood up. And even in the dim light, her face seemed older than it had even the previous month. I remembered the white hairs I'd seen. She opened the door and I followed her in.
 
-"Where's Lynn?" asked Mrs. Muramoto. She was a quiet woman who worked for a tailor.
+That night I tried to concentrate on my homework for Monday, but it was boring. We had to read a story about a man who discovered a secret treasure. He bought lots of nice clothes and ate fancy dinners, but he lost his most valued friends because he grew obsessed with his money. We were supposed to write three paragraphs answering the questions: What is the author trying to say by describing the expensive dinners in such detail? What is the theme of the story? How did the main character change at the end? It was a good story, and I liked it. But I didn't know how to answer those questions.
+Amber left, and Lynn, who had read the story, took the time to tell me the story was about greed. So I wrote that the theme of the story was greed. And then I couldn't think of anything else to write. Finally, I wrote, The descriptions of the dinners really describe greed. Greed is bad. People shouldn't be greedy. At the end of the book the main character isn't greedy anymore. I added a few other brilliant remarks. And then I folded the paper in half and put it in my book. I would probably get another C, which was good enough for me.
 
-"She's tired again," I said. I always told people she was "tired," not "sick." We watched the news and a couple of game shows, and then I took Sammy back home. My parents were in the bedroom with Lynn, so I filled the bath for Sam and read to him while he sat in the bathtub. That was his favorite thing: getting read to in the bathtub. After his bath I got his pajamas for him and made up the couch for him to sleep on. Ordinarily, I didn't like to do work around the house, but taking care of Sam was the exception.
+That night Sam fell asleep before me, as always. He shouted out in his dream, "Call me Mister Takeshima!" I laughed and got up and kissed him and made sure the sheet was snug around him.
+"Good night, Mister Takeshima."
 
-Unfortunately, if Sam was sleeping on the couch, that would leave the living-room floor for me. I didn't see why we couldn't sleep in our regular beds. If Lynn was contagious, we would get sick just from living in the same apartment. Her germs were probably all over the place by now.
-I took a bath in Sam's old water and laid out some blankets on the living-room floor. When I was a little girl, sleeping on the floor always seemed like a treat. We used to beg our mother to let us sleep on the floor. It was like camping. Now that I was older, the floor felt hard. In a few minutes my mother came in looking annoyed. I knew it was because I hadn't wiped the ring around the bathtub, but I didn't say anything. I was in a bad mood because the floor was hard.
+I turned around and was surprised to see Lynn sitting on the floor next to the couch. She was clutching her knees to her chest.
+"Gregg is moving away," she said.
+"I thought he was coming over for dinner one day."
+"He was, but then he found out he was moving. They're already packed up. I haven't told anyone else."
+"Not even Amber?" "Nope."
+"Are you in love with him?"
 
-My mother seemed exasperated. She was kind of crazy about cleanliness. "How many times do I have to tell you?" she said. My father
+She thought this over. "No. I guess I like him, but I don't love him."
+That was good. In my most humble opinion, Gregg was a little pukey. His hair looked like something you would brush a horse with. And when he talked, little bits of saliva collected at the corners of his mouth. He was certainly nothing like Joe-John Abondondalarama. Of course, I didn't mention this to Lynn.
+Lynn returned to the bedroom. We used to wake each other up sometimes in the middle of the night and say what was on our minds. But Lynn hadn't done that in a long time. Usually when she used to wake me up, she had wanted to talk about college. I had secretly decided not to go to college, but I thought that maybe I would move to the same town as her. Then we could share an apartment in a tall building, the way she'd always dreamed.
 
-came up behind her. Even he seemed annoyed with me, and he almost never got annoyed.
-"Katie," he said, "how many times does your mother have to tell you to wipe the ring in the bathtub?"
-"I don't see why I have to sleep on the floor," I said.
-My father's face darkened. I felt a little scared. He never got truly mad at us, ever. That was our mother's job.
+Lynn had seemed sad about Gregg.
+I got up and went to the bedroom and sat by her bed. "Lee-uhn?" "Uh-huh."
+"There's another boy in your class I think is cuter." "Who?" "I think his name is Clifton."
+"Clifton! Oooh! I thought you were serious." She laughed. "You're so funny!"
+That made me realize I must have said something stupid. "Well, he's okay," I said defensively. That was the way it was lately. Whenever I tried to talk to her, she made me feel immature, even if she didn't mean to. I went back to the living room and fell asleep.
 
-My mother looked as if she was going to cry. But I was famous for being hardheaded. Maybe it was because Lynn had always let me have my way. So now I pulled the covers over my head. I was shocked when my mother pulled the covers off and yanked me up by my arm. My father rested his hand on her to restrain her. She started crying. I didn't know what was going on: It was just a bathtub ring. My father looked at me sternly. "I want you to clean the bathtub now," he said very quietly.
 
-I walked into the bathroom and shut the door behind me. I sat on the floor for a few minutes to think, but I was getting sleepy, so I cleaned the bathtub. I had to admit it took only a couple of minutes. When I got out, my parents were in their bedroom. I could hear them talking but couldn't hear what they were saying.
-I stopped at my bedroom and put my ear to the door. All was quiet. I looked around to make sure my parents were still in their room. Then I opened the door. The light was on, and Lynn was staring into space. She didn't even seem to notice when I opened the door.
-"Lynnie?" I said. She turned to look at me, her face blank. "Vail need anything?"
-"Like what?"
-"I dunno. Food?"
-She shook her head. "You're not supposed to be here. I could be contagious."
-"What's wrong with you?"
+The next day Lynn felt so tired, she didn't want to get out of bed. I cooked her an extra helping of liver and told her to chew well.
+Chewing well was what my mother always told me to do when I was sick. It was a Sunday. Lynn slept most of the day. By evening, when I tried to
 
-"I don't know. Anemia, I guess. That means I need more iron and have to eat liver. I have to stay in bed all day tomorrow. You and Sam have to go with Mom again."
-"We could stay with you."
-"Dad says no, you might get sick." "Anemia is contagious?"
-"No, but maybe I have something else." "Like what?"
-"The doctor doesn't know."
-Sometimes when I was younger and I got sick, my parents wouldn't let Lynn in the room with me. But she used to sneak in anyway, so she could take care of me. She used to worry about me quite a bit. Now I went into the living room and lay on the floor next to the couch. I got up and checked to see if my brother's forehead felt either too hot or too cold. He felt perfectly normal.
-By the time I woke up, my father had already left for work. It was still dark. My mother woke Sam and me and told me to dress my brother. She said our auntie Fumi, who didn't work, was going to drive out and spend the day with Lynn. It must have been serious if Lynn couldn't even take care of herself.
-Sam was half asleep as I dressed him. He whined a bit: "Why do I have to go? It's hot in the car."
-"I know. Go get your toothbrush for later." He hurried away—he always listened to me.
-I grabbed the lunches our mother had made for us. We followed her out of the house and got quietly in the car. I decided to sit in back. I didn't feel like being grown-up today. As we drove along the dark highway Sam leaned against me as he slept. We passed the swamp, and I watched for Brenda, the little girl who had died. I also watched for swamp lights, the weird lights that locals were always saying they saw in
+feed her, the food just fell out of her mouth. She didn't have the energy to chew. I even offered to chew it for her, but she said, "Gross."
+My mother decided to take her to the hospital. My father was at work and nobody in the building was home because it was bowling night, so my mother called Uncle Katsuhisa to come take care of Sammy and me. Uncle didn't like to bowl because he only liked games where you had to think. I watched as my mother put Lynn's jacket over her pajamas. Lynn staggered out the door.
+I locked the front door and waited for my uncle to arrive. Sammy's forehead was all wrinkled. He was calm, like my father, so it was unusual to see his forehead wrinkled that way. My mother always liked to say he was never going to get wrinkles because he hardly ever frowned. But now he was probably worried about Lynnie.
 
-the swamps.
-Sometimes I thought I saw something moving through the trees. But then I would realize that I had just seen moss swaying in the wind. Then I really thought I saw her! She was a pale girl running in a white dress with a dog at her side. I lowered the window. The humid air rushed in. Brenda wove through the trees before moving deeper into the swamp, so I could no longer see her. I turned to check whether my mother had seen, but she was staring straight ahead.
-My mother hadn't said a word since we'd left home. I could tell that she was worried about Lynn. And even though I couldn't see him, I knew that my father, probably hard at work right now, was worried too. The measles did not seem like such a horrible thing. I'd known many children who had gotten the measles. From what I'd heard, anemia was not so terrible either. Auntie Fumi had been anemic once. And yet my parents were very worried. I decided that was because they loved us so much, even though we weren't always good. Lynn was better behaved than I was, of course, and so was Sam. But even if I got sick, I knew my parents would be very worried about me.
+When Uncle Katsuhisa knocked on the door, I made him give me a password. He said with irritation, "Open up now, young lady, or bear my wrath." That happened to be the password, so I opened the door.
+Uncle came in with Auntie Fumi and David and Daniel. They did everything together. Unlike my father, Uncle worked only one job, and Auntie didn't work at all. David and Daniel probably got to see their parents all the time.
+I didn't know what to expect from Uncle and Auntie. Last time I had seen them, they had been fighting. They were like that. One day they were madly in love, and the next day they were fighting. And then the next day they were madly in love again.
+Usually Uncle Katsuhisa was boisterous, but today when he came over, he was restrained. Plus, Uncle and Auntie were snapping at each other a bit. Obviously, they'd been fighting.
 
-I was sleepy, but at the plant I tried to stay awake so that I could watch out for the thug. My mother hadn't said anything else about him. She hurried inside for her shower. A short time later the laundry girl's mother parked across the lot. I remembered that my mother had said not to talk to the girl. But she waved at me, so I had to wave back. Then she walked over, so I had to lower the window. She peered into the car at Sam. "I have a brother too, but he's older," she said.
+He said, "One thing I can't stand is a woman who spends money unnecessarily."
+She said, "A woman needs a coat." He said, "In ninety-degree weather?"
 
-I had to talk to her now, because it would have been rude not to. "His name is Sam. I'm Katie Takeshima."
-"I'm Silly Kilgore."
-"What kind of name is Silly?"
-"It's short for Sylvia." Silly was pale, with kind of messy pale hair and pale eyes. Very skinny, like me.
-"Oh. My name is short for Katarina." Actually, it was short for Katherine.
+She said, "It won't always be ninety."
+And so on. Then they stopped, and we all just sat there glumly.
+All of a sudden, Uncle Katsuhisa stood up and announced, "We are going to play Scrabble!" He said that as if playing Scrabble were as fun as going bike riding or something.
+I wasn't a good Scrabble player, but it was better than sitting around the living room staring at one another. I set up the game. Uncle sat in a chair and said, "It's family time!" Sam could already read simple words, but he was too young to play. He sat beside me. Uncle looked suspiciously at him, as if he might somehow help me cheat. David and Daniel studied their letters. I was first. I studied my letters. There didn't seem to be a word in them. Uncle cleared his throat. After a moment I could hear his foot, first tap, tap, tap, and then whompwhompwhomp on the floor. I sensed I was already ruining our family time. He peeked at my letters and threw his hands into the air.
+"Think, Katie. Think, Katie. Think, Katie!" He looked at me as if I were possibly brain damaged. I'd seen him look at Auntie like that sometimes. He never actually called anyone stupid, but sometimes he looked at them as if he thought they were. "We're waiting, Katie," he said. "Take your time."
+"I can't see anything I can do." It was hard to think with all that whomping.
+"Take your time."
+"Katsu, leave her alone. She's thinking," said Auntie Fumi.
+"I'm trying to help," he said defensively. Then he looked at me as if it were my fault Auntie had scolded him. He looked at her. "Can I just say one more thing to her?"
+"No," she said.
+He peeked at my letters again and shook his head.
+"You have to rise to the occasion," he said to me, sneaking a look at my
 
-I wasn't exactly precisely telling a lie, because even though my birth certificate said Katherine, Lynn had always told me that my real name was Katarina.
-"Are you going to come here every day?"
-"Just for a week. Then I have to go to summer school because my grades aren't so good. I'm going to go to Africa and study animals when I get big."
-"I'm going to be a doctor." "Can girls be doctors?"
-"I can."
-"Really?" I paused. That was news to me. I had never seen a girl doctor. I looked around. "Where's the thug?"
-"They had some trouble at the other plant. He had to go there." She added proudly, "My mother backs having a union."
-I didn't answer.
-"I'd better get to work," Silly said. She ran off.
-I slept for a while, woke up and fed Sammy a little rice, slept awhile more, and then woke up for good as the sun rose over the fields. I decided to walk through the gate and explore the plant.
-The plant was a long rectangular building with a few windows high up the walls. On one side of the plant a garbage can lay in the dirt. I set it up and climbed on it. If I stood on my tippytoes, I could just see into one of the narrow windows. Everyone inside was dressed in white. At first I couldn't pick out my mother, but then I saw her small back. She was the tiniest worker in the factory She expertly sliced a couple of legs off the body of a chicken. Then she sliced the drumsticks from the thighs and sent the drumsticks down one conveyor belt and the thighs down another. At the exact moment that she finished, another chicken arrived and she cut the legs off it. Over and over. I couldn't see her face, but the faces of the workers I could see were blank, perfectly so. Most of the
+aunt. She frowned.
+I still didn't see what I could do. Scrabble was not my specialty. Now that I think of it, I suppose I didn't have a specialty. I looked at my letters: "S-Z-O-G-V-W-Q." Then I saw it, or thought I did. I put down "S-O-G." I happily picked up three more letters—all vowels.
+I smiled up at my uncle. He was staring at the board. Then he leaned over, his head in his hands. He didn't speak for a long time. He groaned loudly over and over.
+"Isn't that a bit melodramatic, Katsu?" Aunt Fumi asked. "Isn't that a word?" I finally said.
+"No, that is not a word," Uncle said. "That is not a word. That is not a word." He hadn't lifted his head. He hit his forehead on the table a couple of times. He lifted his head. "What do they teach them in school today? She's thirteen years old."
+"She's eleven."
+"Thirteen or eleven, that is still not a word."
+My aunt stroked my face lovingly. "That was a good try, dear." "'Soggy' is a word," I said. "Like 'foggy' and 'fog'?"
+"Fumi, just tell me one thing: Is she doing this to torment me? I don't know if she's doing this just to torment me. If she's not, okay, but if she is
+. . ."
+My aunt looked at me gently. "Honey, look at those letters you put down. There's a word right in those letters." She stroked my face. "What other word can you spell?"
+I looked at Sam. He was mouthing something. It looked like "Oh." He did it again: "Oh."
+"Oh," I murmured.
 
-workers were women.
-I could just make out a sign titled THE THREE RULES OF MEAT PROCESSING. Underneath the title it said: 1. HYGIENE. 2. HYGIENE. 3. HYGIENE. My mother sometimes said proudly that this plant was the cleanest in Georgia. Some of the poultry plants were supposed to be filthy. She said that the chickens at this plant were special gourmet chickens that Mr. Lyndon's wife served guests at the mansion. We'd never eaten any of these special gourmet chickens. Every Christmas there was a lottery and an employee won two chickens. But my mother had never won.
-I heard a cracking sound, and the next thing I knew, the corroded metal of the garbage can began to collapse and I fell to the ground. I lay on the ground for a moment, the way my father had taught me to do when I fell. "Make sure you're not hurt before you move," he had told me. When I sat up, I saw my legs were bloody. The thug was standing over me frowning. He had permanent frown lines between his eyes, and he was taller even than my father.
-He looked behind me, and I saw another man approach. I felt sick to my stomach.
+"Ssss," said Sam. I picked up the "G" and returned it to my slate of letters, leaving "S" and "O."
+My uncle stared at my word "so." He turned to Sammy. "Thank you, Sammy."
+"Sometimes it's hard to see the obvious," Auntie said sweetly.
+David looked sideways at his father, who glared at me again before turning his glare to the board. David, who was always my pal, ceremoniously plucked a few letters from his collection and then set down his letters and spelled "S-P-E-R-M."
+Nobody spoke. Actually, I wasn't certain what "sperm" meant. But I could guess.
+Uncle Katsuhisa just stared at the board for a moment. He nodded a few times.
+"Where did you learn that word?" said Auntie Fumi. "From Dad."
+Uncle Katsuhisa didn't speak, but he turned red. He said, "It's a legal word, that's the important thing for our purposes."
 
-Then Silly ran up. It was a regular convention! "Hi, Uncle Barry," she said to the man who'd just arrived. Her uncle looked down on me and helped me up. He was wearing a real button-up shirt, and he held himself with a kind of pride.
-"Are you okay?" asked Silly's uncle Barry. The thug said, "What's going on here?" "They're just little girls, Dick."
-Dick scratched at a bite on his cheek. "Well, get them out of here." Barry took our hands and led us away from the plant.
-Silly said, "This is my new friend Katie." He stopped and shook my hand, just as if I were a grown-up. "Nice to meet you, Katie."
-His button-up shirt made me feel I should be very polite. "Nice to meet
+Auntie glared at him. The phone rang, and she went to get it. Nobody moved while she talked. When she was finished talking, she walked back into the living room and just stood there. Then she burst into tears and ran out of the room. We all stared after her. Uncle got up slowly and left the room. In a moment we heard him and Auntie talking.
 
-you, sir."
-Then he let go of my hand, and he and Silly got into his car. I watched them drive off. Her uncle's car was pretty nice. It looked like it was only a couple of years old.
-Back in my mother's car Sam shunned me for a few minutes because I had left him alone. But he never stayed mad for long. He was little Mr. Sunshine. That was why I loved him so much. Dick the thug had paused by the building, watching me. I locked the doors.
-Over the next few days Silly tried to work as fast as she could so she had time to come out and talk to me. We shared our rice balls and seaweed with her, and she shared sandwiches with me and Sam. The bread on the sandwiches was kind of amazing. You could tear out the white middle section and press it into a hard ball of dough before you ate it. Or you could twirl it into long strings and wrap it around your tongue. Sammy had never seen bread before. He loved it.
+Then it got very quiet in the other room. I cleaned up the Scrabble game. David, Daniel, Sammy, and I just sat around doing nothing, which was about as boring as it sounds. Finally, David and I snuck into the hallway to peek at what Uncle and Auntie were doing. They were in the kitchen, and the radio was playing softly. They were holding each other very tightly. They weren't dancing exactly, but just stepping back and forth in time to the music. I could tell it made David happy to see them like that, even though it embarrassed him because it was kind of goofy.
 
-It turned out that Silly's father had died shortly after she was born. Her uncle—her father's brother—was like a father to her. Her uncle had owned a sign store once, but it had gone out of business. Silly needed to work to help pay for her school clothes. In her spare time she also helped her mother fold union flyers.
-She made me feel lazy. I did manage to clean up after myself a little, but other than that I didn't do much of anything except take care of Sammy. The area around my bed was the messiest part of the room, except for the area under my bed, which was even worse. Every time it was my turn to do the dishes, I always had an excuse—or else, if Lynn felt well, I let her do them for me. And yet my parents could afford to buy me my school clothes.
-Silly and I exchanged phone numbers. I promised her she could use Lynn's bicycle and we would go riding. She was the only kid I knew who did not even own a bicycle!
+I had to interrupt their dancing to ask, "Auntie, was that my parents?"
+She and my uncle stopped dancing. "Yes, it was your mother," she said. "She told me to tell you . . . to tell you that everything is okay. Don't worry, sweetheart. She told me to tell you that."
