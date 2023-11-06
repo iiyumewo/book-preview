@@ -1,141 +1,82 @@
-C H A P T E R 13
+C H A P T E R 1 4
 
 
-BECAUSE OF LYNN'S medical bills, soon my parents were getting behind on the mortgage. All they did was work. My mother came home only to sleep, and my father did not come home at all. Auntie or Mrs. Kanagawa stayed with Lynn and Sammy during the day when I was at school. My parents were so exhausted, I wasn't sure they even realized what arrangements we were making each day. Some days nobody stayed with us.
-Most of the time Lynn slept, but anytime she was awake, she wanted attention. She wanted a bedpan, or food, or water, or sometimes just a little company. But sometimes she didn't know what she wanted. In fact, it seemed that at least once a day she didn't know what she wanted. That was the most exhausting thing. She would want me to read to her, and then she wouldn't like the book and would want me to read something else. And then she still wouldn't like the book and would want me to sing for her. But she wouldn't like that, either. My teacher had commented on the black circles under my eyes. A couple of morn- ings I even made myself coffee.
-Sammy and I slept in the room with her now, because somebody needed to be with her all the time. Once, Lynn woke up in the middle of the night, the way she often did.
-"Katie?" she said.
-I almost never slept deeply anymore—as soon as she said my name, I always sat up immediately, no matter how tired I was. But that night I was completely exhausted. I could barely pull myself up.
-"Katie?" she said, more impatiently. "Uh-huh." I sat up. "Yeah, okay."
-"I want some milk." "Now? Are you sure?"
+I WATCHED MY father walk away. I got up and ran behind him to the doorway of the bedroom, then hesitated. My mother was weeping as she knelt by the side of the bed and leaned over my sister. My father knelt in front of the bed and enveloped Lynn's head with his arms. It was light outside now, but nobody had bothered to turn off the lamp. I stared at the lamp. The lamp was on because Lynn had asked that I turn it on, but now she herself was gone. I couldn't comprehend it. I walked in slowly. My parents scarcely noticed me. My father moved to my mother and put his arms around her.
 
-"What do you mean, am I sure? I want some milk."
-I got up and went to the kitchen and brought back a glass of milk. I pulled her up and picked up the bolster from the floor and used it to support her back. She took one sip of milk and made a face. "Can I have water instead?"
-"I thought you said you were sure!"
-She looked as if she might cry. "I said I'm thirsty!" She dropped the cup to the floor. I just stood there a moment, watching her small rug soak up the milk.
-I suddenly felt angry at her. "Dad had to buy you that rug, you know." "I want water!"
-I went to the kitchen and came back with water, a soapy dishrag, and a towel. I handed her the water without comment. Sammy's eyes were open wide, watching me. I cleaned up the rug.
-Lynn cried out, "There's soap on this water glass!" She flung it to the floor.
+Lynn looked peaceful, even beautiful, but slightly off. Her eyes were not quite closed all the way, and her mouth hung open a bit. My mother suddenly got up and held a mirror to Lynn's nose, apparently hoping to see a fog of breath on the mirror. But the mirror stayed clear.
+"Who was with her?" I said. My father's voice broke as he said, "Nobody."
 
-I stared at the cup for a moment. Then I whipped around. "You're ruining everything!" I said. "We got a new house, and you're ruining everything! Mom and Dad worked so hard to get this house. You're ruining it!"
-She looked really hurt for a moment, but then she got angry. She said, "I want milk."
-I said, "No." "I hate you." "I hate you!"
-Sammy said, "Katie?"
-"Shut up!" I snapped at him, and he was still.
+That cut hard into me. I wished so badly that I had not gone out. I should have known better. I should have! I could not imagine what dying must have felt like for her. I had no idea whether it mattered or not to her that she had been alone at the exact moment she died. But I thought maybe it did matter.
 
-I finished cleaning up and got in bed. Sammy was still awake, staring at me. I told him to go to sleep. Lynn started to cry, but only for about fifteen minutes.
-Then she started to make a soft, mournful, squeaky noise, kind of like "heeah . . . heeah . . . heeah," every time she exhaled. She didn't sound like Lynn, she sounded like an animal. Since she never seemed to inhale deeply anymore, her breathing was quick and shallow. She made the noise on and on, weakly. She didn't cry again, she just kept making the noise. It sounded really sad.
-Sammy's face looked scared in the glow from the Rabbit on the Moon night-light Auntie Fumi had given Lynn.
-I ignored my sister and brother, just lay there and listened to Lynnie in the dim light. Usually while I lay in bed, I liked to think of new things I could do for Lynnie. Maybe I could let her try my pillow to see if she liked it better. Or I could bring her a new cracker she'd never tried. Or maybe I could even find a new book that she'd never heard of and read it to her, even though she had heard of every book in the world. That night I knew that nothing I could do would make her feel better. So I lay in bed and listened to her mournful noise and didn't feel love or hate or anger or anything at all except despair.
+Then there was a frenzy of activity as my parents got ready for the funeral. Though I had hardly slept, I couldn't sleep any more that day. The lack of sleep coupled with Lynnie's death made the world surreal. All day people came and went, and I kept hearing some of them call Lynn "the body." Finally, I shouted at one of them, "Stop calling her that!" After that everyone only whispered around me, but I couldn't hear what they were saying.
+My mother didn't want to throw away anything that had existed while Lynn was still alive. Before Lynn's body was taken away, my mother had me cut my sister's fingernails and even her toenails and place them in an envelope. She asked me to gather Lynn's things that lay around the
 
+house. And she wanted me to make a pile of any newspapers I could find from before Lynn died, so she could always remember what was going on in the world when Lynn passed. In the afternoon I walked r in the bathroom and found my mother examining hairs she found on the floor, so that she could save those hairs she determined to belong to Lynn. Finally, my mother had me go outside and search through our garbage. She wanted to make sure there was nothing regarding Lynn that she should save.
+I went outside and took a bag out of our can. I poured the contents onto the driveway. I saw a neighbor watching, but I didn't care.
+The sun was warm on my back. But instead of feeling like complaining, I felt my mother's fervor. I felt it was very important to find Lynnie items. There were maggots in the bag. They didn't bother me, because I had a mission. The first bag was full of treasures: a paper with a scribble I recognized as Lynn's; a newspaper from a week ago; and a pencil Lynn had chewed. I searched through three bags, full of such precious items.
+Before they came for Lynn, I cut off a lock of my hair and placed it in the pocket of her pajamas. But I remembered she would wear something different than her pajamas for the cremation. So I tied the lock of my hair around her neck. Then when Lynn was gone, I lay on her bed and cried. After I cried awhile, I started to feel angry. I didn't understand why the doctor who came to make sure Lynn was dead was one of the same doctors who had been taking care of her. If he was such a good doctor, then why did she die? And I thought maybe the doctor was mistaken, my parents were mistaken, and now they had taken Lynn away when she still possessed a small spark of life in her. Miracles happen: Maybe she would open her eyes later! What if my mother had held the mirror wrong and had missed Lynn's feeble breath?
+And yet I knew Lynn was dead. I could feel the place inside of me where she had resided. This place was empty
 
-For Thanksgiving weekend my parents needed a break from me and Sammy, and we needed a break from them. No one felt like eating turkey. My parents arranged for Uncle to take us on a camping trip. He took his kids camping almost every weekend, even when it rained. He called every Friday night and asked whether we wanted to come. We always said no. I wanted to stay with Lynn. But this time my parents made me go.
-We left early on a Saturday morning. My parents seemed relieved to see us go. It made me surprised and guilty to find how glad I felt to get out of the house where everything reminded me of my sister. I felt guilty whenever I left my sister's side, but at the same time I could not be with her every moment. If I had been, I would have lost my mind. Maybe I was losing my mind. Sometimes, even just for three minutes,
+It was hard to stay angry when I felt so sad. I would rather have felt angry, but instead, all I could do was sob. Even though people had been coming over all day, the house seemed so lonely that I couldn't stand it.
+The room grew somewhat dimmer. I didn't move as it grew dimmer still.
 
-even when it was my turn to be with Lynnie, I had to step outside. I had to look at the sky. I had to be anywhere else but in that sad room with her.
-In addition to Sammy and me, Uncle was bringing his family, my friend Silly, and his friend Jedda-Boy, a local land surveyor. Silly and I rode in the truck with Uncle. Amazingly, it was the same truck he had driven us to Georgia in years earlier. It didn't go more than twenty-five miles an hour, so Jedda-Boy's truck lost us in the first ten minutes. Unfortunately, Uncle had never been to our destination before. We were going to one of Jedda-Boy's favorite campsites. Uncle got lost and refused to stop for directions because, he kept saying, he knew the way, which he obviously didn't.
+Then, with a start, I hurried outside and ran to the alley in back of our house. Through a break between the buildings, I saw that the sun hung low over the horizon. I watched it until it started to hide between two trees in the distance. Then I climbed on a car and watched until only half of the sun was visible, and then a quarter, and then I felt a huge sickening panic inside of me and ran as hard as I could to a ladder I saw down the alley. I rushed up the ladder and climbed on the roof of some- body's garage. I saw the sun again, a quarter of it, and then a slice, and then it disappeared, the last time ever that the sun would set on a day my sister had lived.
 
-At one point we went down a small road that ended at a cliff. The truck got stuck and wouldn't back up. I could literally see down into a canyon before us. If we went forward, we would fall to our deaths. Then Lynn would miss me and might get sicker. Uncle wanted Silly and me to sit in the truck bed to get better traction. So she and I got in back and prayed that my uncle wouldn't go forward by accident.
-The truck revved and revved and shook and shook, but it was still stuck. Then Uncle tried to explain to me how to use a clutch, so that I could back up the truck while he and Silly sat in the bed, since he was heavier than I was and would give us better traction. I couldn't figure out the clutch. In fact, at one point while I was learning, the truck jolted forward several inches. Uncle screamed a scream as high-pitched as a girl's and rammed his foot on top of mine on the brake. He taught Silly instead. She was like Lynn in that she could do anything, including crazy stuff like learning how to use a clutch.
+I stood on the roof and watched the darkening sky. I heard my father calling out, "Katie! Katie!" I didn't answer; I didn't want to talk to anyone. His voice grew closer and then farther away. For some reason I felt panicked again and screamed, "Dad! Daddy!" His voice grew closer: "Katie! Katie!" He sounded panicked too. I hurried down the ladder and fell into his arms. I cried and cried, and he did not cry at all.
+We walked quietly inside for another meal of sardines and rice.
+Sammy ate calmly. My mother ate doggedly. My father ate politely. I didn't eat at all.
+"Can I fill my water glass?" said Sammy. "Yes," said my mother.
+He got up, pulled his chair over to the sink, and filled his glass. He limped a little as he walked to the sink. Usually his ankle was fine, but every so often since his accident his ankle hurt. That smoky anger I had seen once before filled my father's face. He turned to me. I thought he was mad at me for some reason. Suddenly, he stood up. "That's enough, Katie," he said.
+I wasn't sure what he meant, but I jumped to my feet.
+"You're going to show me where you found the trap that hurt Sammy," he said. "Okay. Why?"
+"Because if it's still there, I want to throw it away."
 
-Uncle and I climbed in back. Silly turned once to look at us. She crossed her fingers and then turned forward. The truck shook and rattled, and then we backed up.
-Uncle was sweating. He seemed to think we would all be dead if he hadn't slammed his foot on mine. My toes still hurt. He looked at me with new respect, I guess over just how much trouble I was capable of causing. He got in and started driving again. We pulled around a corner, and I felt myself totter uncertainly and then lean into the door.
+My mother stood up. 'You want to what?" "You heard me." "You are taking that girl out over my dead body"
+He seemed to consider this. Finally, he said, "No."
+So once again I sat in a passenger seat and bumped across the fields toward where we'd held our picnic months earlier. The last time I'd been here, Lynn and I had eaten rice balls together.
+An animal, maybe a coyote, scrambled across the field as we drove. I directed my father to where I thought we'd held our picnic. My father told me to wait in the car.
+"Be careful, Dad," I said. "I know," he said.
+I sat there as the sky turned black and the air grew brisk. I closed the windows and leaned against the glass, watching my dad, with a flashlight on now, searching through the trees and field, his face in the flashlight's glow grim and determined and, maybe, a little crazy about this thing that had hurt his son, this thing owned by a mean rich man who owned his dream house. He left my sight for a long time, and I got nervous and even started to feel sick to my stomach, but then his light flashed somewhere different from where I'd thought he was. I didn't know what good it would do if he did find the trap, but I felt glad anyway that he was looking. I liked being out here better than being at home. I felt scared to return to that house where Lynn no longer lived. I thought I would be so sad, I would die.
+When he finally returned, he threw some things into the trunk and got in. If anything, he seemed angrier than before.
+"What kind of man puts traps like that in a field? What is he trying to catch?"
+"Squirrels?"
+He looked at me. "Squirrels?!"
+He started the car suddenly, and we lurched across the field toward Mr. Lyndon's house. My heart pounded as we bumped across the grass. I
 
-He'd told me the door came loose sometimes. I tried to stop myself, but the door fell open. The next thing I knew, my back was scraping along rocks on the roadside.
-Unbelievably, no one noticed, not even Silly. They rolled merrily along while I lay on the road and watched the truck recede. I screamed, "Wait for me!" In a moment the truck came slowly down the road from the opposite direction. I saw Silly point at me excitedly, and the truck pulled over. I got in the truck and refused to talk to Uncle Katsuhisa. My shirt was torn in back. Basically, there were already about a thousand things I could snitch on Uncle for if I wanted.
+thought maybe my father wanted to yell at Mr. Lyndon. This terrified me. First of all, it was as if my father had turned into a different person. Where was my real father, who always looked before he leapt? Second of all, Mr. Lyndon was, well, he was Mr. Lyndon. You couldn't just go to his house to yell at him. And shouldn't we go home to take care of my mother and Sammy?
+We reached the private road in front of the mansion, and my father kept driving. He stopped not far from the house and opened up our trunk and pulled out a two-by-four. He walked up the driveway to a red Cadillac and crashed the wood into the front windshield.
+Glass exploded outward and sprinkled to the ground. I thought I saw someone peek out the windows at this madman who was my father. My father got in and we roared away.
 
-He seemed to realize that, because he handed me a piece of rice candy and said, "I'd like to give you this." I continued to shun him. "All right, then, here," he said. He handed me the whole pack of rice candy plus a Hershey's bar. I took the rice candy, handing the Hershey's bar to Silly.
-"Now, don't you tell your parents you fell out of the truck." "I won't."
-He shook his head. "I still remember when I could bribe you for half a stick of gum."
+I looked at him, but his face held no expression. Lynn once said our father was the most determined man in the world. I remembered once how she and I had seen someone act rude to our father. Later I asked her why our father didn't hit the rude man. Lynn said that he accepted rudeness and unfairness to himself, just as he accepted hard work. If he could have, he would have worked all the time and never slept. My father was the most generous man in the world. I knew that without Lynn telling me so. If Mr. Lyndon or any other man had come to our house feeling hungry, my father would have welcomed him and given him the best food in our kitchen— the freshest fish, the hottest rice, the sweetest pastries. He would have made us be polite. He would accept anything and anyone, so long as he could earn a living to help his family. But I saw that on this one day, for the first time since I'd known him, he could not accept the way his life was turning out.
 
-At the campgrounds Jedda-Boy had already set up camp. When I started to tell the story of the cliff, Uncle frowned at me, so I didn't say anything. He smiled innocently at Auntie Fumi.
-David, Daniel, Silly, and I ran off to play a game we called Hunter and Hunted with water guns. At first I hadn't felt like playing, but they begged me. Silly and I chose to be the deer first; David and Daniel would hunt us with their water guns. I found I loved pretending to be a deer, loping through the forest as the boys counted to one hundred. Silly and I moved as quickly and quietly as we could. We had to balance our movements between speed and noise. Silly was like an animal, with perfect animal instincts about where to go and how to move gracefully. We heard David and Daniel call out, "Here we come, deer!"
-I thought I could feel the blood rushing through my body. For a moment I forgot I was human. We moved very quietly. Then we stopped moving
+I watched our small town pass by. We drove right past where we should have turned to go home. We didn't stop until we were in the next town. Then my father pulled over and lay back against his car seat. I didn't move. He was my father, but I was not sure whether he was sane. Since Lynn had been sick, he'd been grumpier, but I'd never seen anything like tonight.
 
-and just listened. We couldn't hear a thing. Suddenly, there was a huge crashing nearby, and we crashed away in the opposite direction. I found myself laughing crazily as I ran. I felt so free!
-Silly and I split up in different directions. I heard Daniel yelling, "I'll get Silly!" I ran desperately through the woods. There was a sudden open area, and I ran and ran across. I felt like a real deer, graceful and fast. I saw an arc of water by my side. It missed me! Then water splattered on my head. I collapsed to the ground and groaned the way I thought an animal might. David ran up and put his foot on my stomach and pounded his chest and said, "For I am the greatest hunter alivel"
-We turned to watch Silly running into the woods chased by Daniel. In a minute he came out of the woods looking confused. He stood still to listen. David and I helped him look for Silly. About ten minutes later we still hadn't found her. Daniel yelled, "Ollie, Ollie, ocean free!" Silly appeared right where we'd just come from. I was so proud of her.
-Then it was the boys' turn to be the deer. They went to hide. We didn't chase them. Instead, we returned to camp to play cards in our tent. We were so funny! When the boys finally figured out where we were, they refused to speak to us. So we refused to speak to them.
-David said, "How can you not speak to us when you're the ones who played the trick?" But we didn't answer because we weren't speaking to them!
-When night approached, Uncle made us a fire, and I lay near it and felt the heat on my body. I stared at the sky, as I had done so many times with my sister. I was surprised to realize that I hadn't thought of my sister for nearly an hour—the whole time we were playing and about half an hour after. That was the longest I hadn't thought about her for a while. I felt refreshed, as if I could now sit with her for ten years straight if necessary to help her get well.
-Auntie and Sam sat next to me. David, Daniel, and Silly were playing some game. Uncle and Jedda-Boy took a couple of surveying instruments and discussed mud and sand and other important surveying matters. Jedda-Boy was talking about how once when he lived in Nevada, he got helicoptered to a secret location to measure some land.
+He studied me.
 
-The land was in the desert near where nuclear bomb tests had been held. He finished the job even though the area was probably radioactive, because a self-respecting surveyor always finishes a job no matter what it involves, including, he said, wild dogs, gunshots from angry neighbors mixed up in a property dispute, snakes and alligators, and radioactivity.
-I said quietly, "Auntie, when is Uncle Katsuhisa going to quit his job at the hatchery and become a land surveyor?"
+"Hungry?" he said. "Uh-huh."
+"Yeah, I know you are."
+Our car suddenly filled with light, and then a sheriff's car pulled in front of us. The sheriff got out and slowly walked over. He shone a flashlight at us. My father rolled down the window.
+"Going for a ride?" said the sheriff.
 
-She pushed back my hair and said sadly, "Sweetheart, nobody in Georgia is going to hire a Japanese man to be a land surveyor."
-"How do you know?"
-"He's been turned down for five jobs."
-"But he can be whatever he wants. Lynn is going to be either a rocket scientist or a famous writer."
-"It's different for you children. You're younger, the world is changing."
+My father hesitated. I saw that he suddenly couldn't think. I felt a protective surge. I'd never felt before that I had to protect my father. But now I needed to protect him against this man. The only thing I could think to say was, "We're on our way to eat tacos!"
+"Tacos?" said the sheriff. He looked confused. 'You mean at Pepe's?"
+'Yes, sir," I said, though I had never heard of Pepe's. As a matter of fact, I'd eaten tacos only once, years earlier in a restaurant in Illinois. I have no idea why I came up with tacos.
+The sheriff studied my father. "We just had an incident at Mr. Lyndon's house."
+"Oh?" said my father. "Someone busted up his Caddy" "Oh."
+The sheriff shone the light on me. "They think the perpetrator drove a light blue Ford." Our Oldsmobile was gray, light gray. The sheriff moved his light over the outside of our gray car. My father leaned out and said, "I've always been an Oldsmobile man."
+The sheriff leaned in with his light shining on me. I smiled, but he could tell I'd been crying. "Something the matter?" he said.
+"My sister died," I said. I let out a sob.
 
-Jedda-Boy was talking loudly. "The first time I got chased by an alligator, I was scared, I admit that. But I finished the job later."
+He turned off the light. He seemed to think. The night had grown cool, and when he breathed through his mouth, mist filled the air in front of his face. He switched on the flashlight again and pointed it at my father. He turned it off again. He straightened up and nodded at my father. "Better get her some tacos."
+We drove off in a new direction and stopped at a small Mexican restaurant called Pepe's. I didn't say anything, but I felt pretty surprised at this new turn of events. I had loved tacos the one time I ate them. But it was weird to eat them now, in my saddest moment.
+The floor of the restaurant was made of brick-colored tiles, and all the tables were covered with pretty blue-and-white tile. Ponchos and sombreros hung on the walls. A singer crooned in Spanish from the record player. The atmosphere was festive. A waiter approached us and said, "Dinner for two, amigo?"
+The night didn't seem real. My sister was dead, and I was about to eat tacos. I ordered five of them. In Illinois, I had eaten one. Now I ate all five of my tacos while my father watched, impressed and then maybe a little worried. "You don't want to get indigestion," he said.
+When we got home, my mother was sewing a hem in the kitchen. She was fixing my black dress that I knew I would be wearing to the funeral.
+"I was worried," she said.
+"Katie ate five tacos," said my dad. "That takes time."
+He and my mother both looked at my stomach as if expecting to see it explode. When it didn't explode, my mother raised her eyes to my father. She said the thing she liked to say when she wanted to remind him that he could not afford any sort of unusual behavior. "You've got a long day tomorrow."
+He and my mother left the kitchen. She didn't ask me to wash the dishes. And she didn't do them herself. I had never known my mother to go to sleep with a sink full of dirty dishes. And I never washed them myself unless I'd been nagged. But that night I thought I should. I cleaned the counters and even took a mop to the floor. I wasn't sure
 
-Sammy smiled serenely and looked at the beautiful sky. Lynn liked to say the stars were the ultimate thing you could describe as kira-kira. The second most ultimate thing was the way the sun glittered off the ocean. Of course, she had never seen this, but she could imagine exactly how it would look.
+what sponge to use for the counters. It seemed to me that my mother used a different sponge depending on what she was doing. But there was only one sponge at the sink. An array of bottles and jars of cleaning fluids sat under the sink. But there were no more sponges. I could imagine my mother getting annoyed if I used the wrong sponge. If Lynn were here, she would have been able to tell me what sponge I should have used, she would have been able to tell me what I should do next. I did not know what to do without her to tell me. I lowered my head to the kitchen table and cried. Finally I wet a dishtowel and used that to clean the counters, the table, and even the chair seats. It was late when I finished. I sat at our table and did not know what to do next.
 
-Uncle came and sat down with us. I said, "Uncle, can't you become a land surveyor?"
-He drank from his canteen and wiped his mouth. He didn't answer for a long time. Everyone was quiet. After a time he said, "I remember that when I was a boy, I thought I was going to grow up and map the world."
-Auntie stroked his face.
-Uncle saw Sammy gazing at the sky, and he looked at the sky too.
-
-"Would you look at those stars! I can really see how the ancient Egyptians or whoever the hell it was said, 'Goddamnit, let's name those goddamn stars and go down in history!'"
-I didn't know what the ancient Egyptians had said, but I doubted they had said exactly that.
-
-Uncle's face got wistful as he stared into the sky. Auntie kissed his face. He put his arm around her, and they leaned against each other. I saw in their faces how happy they were, and sad, too, because Uncle Katsuhisa would never be a land surveyor.
-
-
-
-
-New Year's is the biggest holiday of the year for the Japanese. Every year since we'd lived in Georgia, Mrs. Muramoto held a big party. She served sake and mochi and a couple dozen different snacks. We would usually stay until about ten and then go home. Just before dawn I would get up and write down my hatsu-yume, first dream of the new year. Then we would meet the other families and go to the empty lot nearby with our lawn chairs to watch the sunrise. Watching the first sunrise is the traditional way to celebrate New Year's in Japan. The last few years, though, nobody had bothered getting up for the sunrise. The fathers were all too tired for such a celebration.
-
-Mrs. Kanagawa stayed with Lynn and Sammy while I went to Mrs. Muramoto's for just half an hour before returning to sit with Lynn. Mrs. Kanagawa told me Lynn had been very peaceful. We made quiet small talk about the party, and then Mrs. Kanagawa left. Lynn continued to sleep, her breath catching heart-breakingly, as if breathing had become a hardship for her body. Her hair had grown stringy. I moved a strand of hair from her forehead, then pulled a chair to the window and spied on Mr. and Mrs. Miller's party next door. It was quite a bit noisier than the party at Mrs. Muramoto's. Everybody seemed drunk. All at once the men started to put bows on their foreheads and run out the front door. I had no idea what they were doing. I hurried into the alcove and peeked out our front window. The men ran down the street shouting "Happy New Year!" with the bows on their foreheads. Even though I was in a sad
-
-mood, I couldn't help smiling at these crazy white people.
-I went into the kitchen and called my parents at the party and told them Lynn was sleeping peacefully. Someday when Lynn got better, we were going to get her a phone for the bedroom. Gregg and Amber both used to call all the time, so when she got better and made more friends, she would need a phone.
-I put on my pajamas around 11:30 and lay on the floor next to Lynn's bed. The Rabbit on the Moon looked so pretty shining in the outlet.
-"Katie?" Lynn said softly. She hadn't talked all day. I sat up. "Yes?"
-'You have to try to get better grades. Promise?" "Okay."
-"You should go to college. Promise?" "I'll think about it."
-"Promise?" 'Yes."
-"Take care of Mom and Dad and Sammy."
-"Okay, I promise." I hesitated. "When you get better, you can help me take care of them."
-"Okay, I promise." She laughed very softly, almost soundlessly.
-The phone rang, and she seemed to perk up a bit. But it stopped after just one ring, and she seemed to deflate. It was amazing that as sick as she was, she could still be interested in something as small as the ring of a phone.
-She groaned suddenly. "Can we open the window?"
-
-I jumped up to open the window. She closed her eyes, and I sat next to the bed and stared at her. Her skin looked almost purely white, like the white of the ghost of Brenda I'd seen at the swamp. She opened her eyes again.
-
-"It's too dark in here," she said.
-
-I turned on the light. A little brown moth flitted in. It wasn't big, not even an inch long. It landed on the ceiling. Lynn stared at it. Then it flitted toward the lamp and away again. Lynn kept watching. For a moment the party next door quieted down. Our room was so quiet, I could just make out the sound of the moth's wings. Lynn didn't move, except for her eyes. Her eyes moved this way and that as she watched the moth. It was strange because although her eyes showed no emotion or interest, she must have been interested in order to be watching the moth so closely. She couldn't take her eyes off that little bug as it sailed across the room and back again, across and back. And then I thought I saw something in her eyes, some emotion or interest, but I wasn't sure what it was.
-
-The moth settled down, and she went to sleep. I closed my eyes and tried to sleep on the floor with the lights on. I didn't like to sleep in my bed because it was too far from Lynnie, several feet away.
-For some reason my mother didn't make me go back to my cot that night. I couldn't sleep deeply, so I didn't have a hatsu-yume. When it was almost sunrise, I sat up and watched Lynn sleep for a few minutes. Then I took a lawn chair and a blanket down to the empty lot on the corner. I was alone. I thought about getting dressed, but I wasn't expecting to see anybody. I stared east, at the giant tire over the tire store across from the lot. The giant tire looked just like the giant doughnut over the doughnut store on Main Street, except that the tire was black and the doughnut was brown.
-It was cold out. Here are the sounds I heard:
-
-
-1.An old piece of newspaper fluttering in the breeze.
-
-2.A mechanical whirring—I didn't know what was making that sound.
-3.A bird chirping.
-4.A quick click-clicking from a bug light at the tire store.
-
-
-We lived below what Georgians called the gnat line, meaning all the gnats in the world lived in town with us. My uncle claimed that more bugs lived per square mile in southern Georgia than anywhere in the state. Even in winter, there were bugs.
-Those were the only noises. Here are the things I saw:
-
-1.The tire store—through a window, I saw tires piled inside.
-2.A lonely tree outside the store.
-3.The gray sky.
-4.A crow sitting on the giant tire.
-
-
-I cried and cried. For a while as I cried I hated my parents, as if it were their fault that Lynn was sick. Then I cried because I loved my parents so much.
-
-Then I didn't feel like crying anymore. I just felt barren, my eyes felt dry. The sky was still gray. Everything was gray, the sky and the store and even my hand when I held it out in front of myself. I wondered if anyone else in history had ever been as sad as I was at that moment. As soon as I wondered that, I knew the answer was yes. The answer was that millions of people had been that sad. For instance, what about the people of the great Incan city of Cuzco, which was ransacked by foreigners in the sixteenth century? I wrote a paper about that for school. And then there
-
-were all the millions of people in all the many wars throughout history and throughout the world, and all the millions of people with loved ones killed by millions of other people.
-A lot of people had been as sad as I was. Maybe a billion of them had been this sad. As soon as I realized this, I felt like I was no longer a little girl but had become a big girl. What being a big girl meant exactly, I wasn't sure.
-I watched a swatch of the sky turn red. The red spread like blood in the sea: red, red, red, and then less and less red, until there was only blue left. I squinted as the sun rose. I must have fallen asleep, because when I woke up, my father was carrying me into the house. Sam walked beside us carrying the lawn chair, which seemed almost as big as he was.
-
-Inside the living room my father laid me on my cot. "She's gone," he said.
+Later on I lay in bed and saw the happy little moth, still alive, flitting from the night-light up the wall and back to the night-light. And it occurred to me what I had seen in Lynn's eyes the night before: She was wishing she were that moth. Maybe that was the last thing she ever wished.
