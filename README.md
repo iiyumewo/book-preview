@@ -1,72 +1,87 @@
-1
+2
 
-Grand Failure
+Valencia
 
 
 
-Eleven-year-old Virgil Salinas already regretted the rest of middle school, and he’d only just finished sixth grade. He imagined all those years stretching ahead of him like a long line of hurdles, each of them getting taller, thicker, and heavier, and him standing in front of them on his weak and skinny legs. He was no good at hurdles. He’d found this out the hard way: in gym class, where he was the smallest, most forgettable, and always picked last.
+I’m not sure what God looks like. I don’t know if there’s one big God in heaven or if there’s two or three or thirty, or maybe one for each person. I’m not sure if God is a boy or a girl or an old man with a white beard. But it doesn’t matter. I just feel safe knowing someone’s listening.
 
-All things considered, he should have been happy on the last day of school. The year was over. He should have been skipping home, ready to tackle the bright summer ahead. Instead he walked through the front door like a defeated athlete—head low, shoulders hunched, a sack of disappointment sitting on his chest like an anvil. Because today, it was official: he was a Grand Failure.
+I mostly talk to Saint Rene. His real name is Renatus Goupil. He was a French missionary who traveled to Canada. While he was there, he made the sign of the cross over a kid’s head and they thought he was spreading curses, so they took him prisoner and killed him.
 
-“Oy, Virgilio,” said his grandmother—his Lola—when he came in. She didn’t look up. She was in the kitchen, slicing a mango. “Come take one of these. Your mother bought too many again. They were on sale, so she buys ten. And what do we need ten mangoes for? They’re not even from the Philippines. They’re from Venezuela. Your mother bought ten Venezuelan mangoes, and for what? That woman would buy kisses from Judas if they were on sale.” 
+I found out about him because on my tenth birthday, this girl Roberta gave me a book called Famous Deaf People in History. I would have never given Roberta a book about Famous Blond People or Famous People Who Talk Too Much or Famous People Who Tried to Cheat Off My Spelling Paper—all of which describe Roberta—but the good thing was that I found out about Saint Rene.
 
-She shook her head. 
+I don’t know sign language but I taught myself the alphabet so I made up a sign name for Saint Rene. I cross my middle finger over my index finger—the sign for R—and tap it three times lightly against my lips. That’s one of the first things I do after I take off my hearing aids for the night. Then I stare at the ceiling and imagine my prayers traveling up, up, up and hovering over my bed until they lift all the way through the roof. Then I imagine them landing on a cloud and sitting there, waiting to be answered. 
 
-Virgil straightened his posture so Lola wouldn’t suspect anything was wrong. He took a mango from the fruit bowl. Lola’s eyebrows immediately scrunched together. Only they weren’t really eyebrows, because she’d plucked them clean.
+When I was younger, I thought the cloud would get so heavy that all my prayers would come falling down and I’d have everything I wished for, but now I’m eleven so I know better. I still picture them sailing up, though. There’s no harm in that.
 
-“What’s wrong? Why you have that look?” she said.
+I only pray at night, because it’s my least favorite time of day. Everything is still and dark, and I have too much time to think. One thought leads to another until it’s two in the morning and I haven’t slept a wink. Or I’ve slept, but not well.
 
-“What look?” Virgil said.
+I didn’t always hate the nighttime.
 
-“You know.” Lola didn’t like to explain herself. “Is that pug-faced boy at school being mean to you again?”
+I used to crawl into bed and drift off to sleep, no problem.
 
-“No, Lola.” For once, that was the least of his worries. “Everything’s fine.”
+It’s not because of the dark. That’s never bothered me. One time my parents took me to this place called Crystal Caverns where you went underground and couldn’t even see your hand in front of your face. I wasn’t scared at all. I loved it down there. I felt like an explorer. Afterward my dad bought me a souvenir snow globe, only there are bats inside instead of snow. I keep it right next to me, on my nightstand, and I shake it before I go to sleep, just because.
 
-“Hmm,” said Lola. She knew everything wasn’t fine. She noticed everything about him. They had a secret kinship. It’d been that way ever since the first day she’d come from the Philippines to live with them. On the morning she arrived, Virgil’s parents and identical twin brothers immediately rushed her in a flood of hugs and hellos. With the exception of Virgil, that’s how the Salinas family was—big personalities that bubbled over like pots of soup. Virgil felt like unbuttered toast standing next to them.
+So it’s not the dark that keeps me awake.
 
-“Ay sus, my first moments in America will be filled with a pulsing headache,” Lola said. She pressed her fingertips to her temples and waved toward Virgil’s older brothers, who were tall and lean and muscled, even then. “Joselito, Julius, fetch my bags, hah? I want to say hello to my youngest grandson.”
+It’s the nightmare.
 
-After Joselito and Julius scurried off—ever the helpful brothers—Virgil’s parents presented him like a rare exhibit they didn’t quite understand.
+The nightmare goes like this.
 
-“This is Turtle,” his mother said. 
+I’m standing in a big open field—one I’ve never stood in before. The grass is yellow and brown under my feet, and I’m surrounded by thick crowds of people. Nightmare Me knows who they are, even though they don’t look like anyone I know in real life. They all look at me with round black eyes. Eyes without whites in them. Then a girl in a blue dress steps forward, away from the crowd. She says two words: “solar eclipse.” I know what she’s saying even though I’m not wearing my hearing aids and she doesn’t move her mouth. That’s how it is in dreams sometimes.
 
-That was their name for him: Turtle. Because he wouldn’t “come out of his shell.” Every time they said it, a piece of him broke.
+The girl is pointing skyward. 
 
-Lola had squatted in front of him and whispered, “You are my favorite, Virgilio.” Then she put her fingers to her lips and said, “Don’t tell your brothers.”
+Nightmare Me looks up to where she’s pointing and watches attentively, not scared yet. I crane my neck, along with everyone else. We all watch as the moon moves in front of the sun. The blazing blue sky turns gray, then dark, and Nightmare Me thinks it’s the most amazing thing I’ve ever seen. 
 
-That was six years ago, and he knew he was still her favorite, even though she’d never said so again.
+It’s strange how nightmares work, though.
 
-He could trust Lola. And maybe one day he would confess his secret to her, the one that made him a Grand Failure. But not now. Not today.
+Somehow Nightmare Me knows things won’t end well. As soon as the moon finishes passing the sun, my blood rushes into my ears and my palms dampen with sweat. I look down from the sky—slowly, slowly, not wanting to see—and just as I suspected, everyone is gone. The whole crowd. Even the girl in the dress. Nothing moves. Not one single blade of grass. The field stretches on for miles and miles. The moon has pulled everyone away. All but Nightmare Me.
 
-Lola took the mango from him.
+I’m the only person on the face of the earth.
 
-“Let me slice that for you,” she said.
+I can’t tell what time it is, but I know it’s late. Like, past-midnight late. As hard as I want to not think about the nightmare, here I am, lying in bed and thinking about it. I shake my Crystal Caverns globe and watch the bats flutter around. Then I try to focus on the bumpy paint on my bedroom ceiling. My dad calls it popcorn paint. When I was a little girl, we’d pretend the ceiling was really made of popcorn and we’d open our mouths wide, wide and let it fall in.
 
-Virgil stood next to her and watched. Lola was old and her fingers felt like paper, but she sliced mangoes like an artist. She started slowly, biding her time. “You know,” she began, “I had a dream about the Stone Boy again last night.”
+“Next time I’ll paint a licorice ceiling,” my dad would say. He liked to say that Twizzlers were one of his favorite food groups. I’d shake my head and say, “Chocolate, chocolate, chocolate.”
 
-She’d been dreaming about the Stone Boy for days now. The dream was always the same: a shy boy—not unlike Virgil—gets terribly lonely, takes a walk in the forest, and begs a rock to eat him. The biggest stone opens its gravelly mouth and the boy jumps inside, never to be seen again. When his parents find the stone, there is nothing they can do. Virgil wasn’t sure how hard his parents would try to get him out anyway, but he knew Lola would hand chisel that rock to pieces if she had to. 
+It was our routine. But we don’t do things like that anymore.
 
-“I promise not to jump into any rocks,” Virgil said. 
+I don’t think he knows how to be a dad to an eleven-year-old girl. You can’t sit an eleven-year-old girl on your shoulders, especially not when she’s all knees and elbows and five foot five, and you can’t make hot chocolate and wait up for Santa Claus or read picture books.
 
-“I know there’s something going on with you, anak. You have the face of Frederico the Sorrowful.”
+But it was still nice to remember the popcorn-licorice-chocolate ceiling.
 
-“Who is Frederico the Sorrowful?”
+It’s better than thinking about the nightmare.
 
-“He was a boy king who was sad all the time. But he didn’t want anyone to know he was sad, because he wanted people to think he was a strong king. But one day he couldn’t hold in his sorrows anymore. It all came out, just like a fountain.” She lifted her hands in the air to mimic splashing water, still holding the paring knife in one of them. “He wept and wept until the whole land flooded and all the islands drifted away from each other. He wound up trapped on an island all alone until a crocodile came and ate him.” She handed a beautiful slice of mango to Virgil. “Here.”
+I close my eyes and feel the hum of the ceiling fan against my cheeks. I make a promise to myself: if I have another nightmare tonight, I’ll talk to someone and ask for help. I don’t know who. But someone. Not my mom.
 
-Virgil took it. “Lola, can I ask you a question?”
+Don’t get me wrong. There are times when my mom is easy to talk to. If you catch her on a good day, she isn’t too mom-like. But I can never tell which mom I’ll get. Sometimes she is overprotective, overbearing, overeverything. I once asked her flat out if she treated me that way because I’m deaf, because that’s what it feels like sometimes.
 
-“If you ever have a question, ask it.”
+“I’m not overprotective because you’re deaf. I’m overprotective because I’m your mother,” she’d said.
 
-“How come so many of your stories have boys getting eaten by stuff, like rocks or crocodiles?”
+But something in her eyes told me that wasn’t the whole truth and nothing but the truth.
 
-“Not all of them are about boys getting eaten. Sometimes it’s girls.” Lola tossed the knife into the sink and raised her non-eyebrows. “If you decide to talk, you come find your Lola. Don’t burst like a fountain and float away.”
+I’m good at reading eyes. Same as lips. 
 
-“Okay,” Virgil said. “I’m going to my room to check on Gulliver, make sure he’s okay.” 
+I most definitely don’t want Mom to know about the nightmare. She’d start asking me about it every morning and every night and insist that I see a psychiatrist or something.
 
-Gulliver, his pet guinea pig, was always happy to see him. He would chirp as soon as Virgil opened the door; he knew it. Maybe he wouldn’t feel like such a failure then.
+Then again, maybe that wouldn’t be so bad.
 
-“Why wouldn’t he be okay?” Lola called out as Virgil walked toward his room. “Guinea pigs can’t get in much trouble, anak.”
+Maybe then I’d get some sleep.
 
-Virgil could hear her laughing as he placed the mango between his teeth.
+I close my eyes.
 
+Think of something nice.
+
+The coming summer. Yes. That’s what I’ll think about. Sixth grade is over and the nice, lazy summer stretches ahead. Okay, so maybe I don’t have a gazillion friends to hang out with. So what? I’ll make my own fun. I’ll explore the woods and take notes for my zoological diary. Maybe draw some bird sketches.
+
+There is plenty to do.
+
+I don’t need a gazillion friends.
+
+I don’t even need one.
+
+All I need is me, right?
+
+Solo—it’s the best way to go. 
+
+It’s a lot less trouble.
