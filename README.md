@@ -1,87 +1,121 @@
-2
+3
 
-Valencia
+Help of a Different Nature
 
 
 
-I’m not sure what God looks like. I don’t know if there’s one big God in heaven or if there’s two or three or thirty, or maybe one for each person. I’m not sure if God is a boy or a girl or an old man with a white beard. But it doesn’t matter. I just feel safe knowing someone’s listening.
+Gulliver was a good friend, guinea pig or not. Virgil could tell him anything and he wouldn’t judge. And that’s what Virgil needed, only he also needed real, practical guidance.
 
-I mostly talk to Saint Rene. His real name is Renatus Goupil. He was a French missionary who traveled to Canada. While he was there, he made the sign of the cross over a kid’s head and they thought he was spreading curses, so they took him prisoner and killed him.
+He needed help of a different nature.
 
-I found out about him because on my tenth birthday, this girl Roberta gave me a book called Famous Deaf People in History. I would have never given Roberta a book about Famous Blond People or Famous People Who Talk Too Much or Famous People Who Tried to Cheat Off My Spelling Paper—all of which describe Roberta—but the good thing was that I found out about Saint Rene.
+Lola had once told Virgil a story about a woman named Dayapan who’d been hungry for seven years because she didn’t know how to grow food. One day Dayapan wept because all she wanted was one grain of rice and one pea pod—anything to put in her belly. She took a bath in a spring to wash away her tears, and a Great Spirit appeared to her with armfuls of sugarcane and rice. The Great Spirit gave it all to Dayapan and told her exactly what she needed to do to grow more. Dayapan was never hungry again.
 
-I don’t know sign language but I taught myself the alphabet so I made up a sign name for Saint Rene. I cross my middle finger over my index finger—the sign for R—and tap it three times lightly against my lips. That’s one of the first things I do after I take off my hearing aids for the night. Then I stare at the ceiling and imagine my prayers traveling up, up, up and hovering over my bed until they lift all the way through the roof. Then I imagine them landing on a cloud and sitting there, waiting to be answered. 
+Virgil wished that he had a Great Spirit that could tell him exactly what to do, but he only had Kaori Tanaka.
 
-When I was younger, I thought the cloud would get so heavy that all my prayers would come falling down and I’d have everything I wished for, but now I’m eleven so I know better. I still picture them sailing up, though. There’s no harm in that.
+Virgil fed Gulliver and texted Kaori as he walked down the hall for breakfast. Under normal circumstances, he wouldn’t text someone at seven forty-five in the morning, especially not on the first day of summer—but nothing about Kaori was normal. Besides, she always seemed to be awake.
 
-I only pray at night, because it’s my least favorite time of day. Everything is still and dark, and I have too much time to think. One thought leads to another until it’s two in the morning and I haven’t slept a wink. Or I’ve slept, but not well.
+need appointment this afternoon if thats ok
 
-I didn’t always hate the nighttime.
+Virgil slipped his phone into the pocket of his pajamas and followed the unmistakable sounds of his parents and brothers, who were early risers because they seemed to have an endless stream of soccer practices.
 
-I used to crawl into bed and drift off to sleep, no problem.
+In the kitchen, Mom, Dad, and the J’s were drinking orange juice and letting their personalities bubble over, while Virgil tried to maneuver through all the excitement so he could get a piece of fruit or boil an egg.
 
-It’s not because of the dark. That’s never bothered me. One time my parents took me to this place called Crystal Caverns where you went underground and couldn’t even see your hand in front of your face. I wasn’t scared at all. I loved it down there. I felt like an explorer. Afterward my dad bought me a souvenir snow globe, only there are bats inside instead of snow. I keep it right next to me, on my nightstand, and I shake it before I go to sleep, just because.
+“Good morning, Virgilio!” said Joselito.
 
-So it’s not the dark that keeps me awake.
+“Good morning, Turtle,” said his parents, almost in unison.
 
-It’s the nightmare.
+Then Julius: “Maayong buntag, little brother.”
 
-The nightmare goes like this.
+Virgil grumbled something like hello. His parents and brothers were sitting in the high-back chairs at the counter. Lola was at the breakfast table, reading the newspaper.
 
-I’m standing in a big open field—one I’ve never stood in before. The grass is yellow and brown under my feet, and I’m surrounded by thick crowds of people. Nightmare Me knows who they are, even though they don’t look like anyone I know in real life. They all look at me with round black eyes. Eyes without whites in them. Then a girl in a blue dress steps forward, away from the crowd. She says two words: “solar eclipse.” I know what she’s saying even though I’m not wearing my hearing aids and she doesn’t move her mouth. That’s how it is in dreams sometimes.
+“Your mother bought too many clementines, so eat as many as you can,” said Lola without looking up. Then she clucked her tongue at all the wastefulness. Virgil grabbed two clementines in each hand and tried hard not to drop them as he sat next to her. His phone buzzed in his pocket.
 
-The girl is pointing skyward. 
+“What’re you reading about, Lola?” Virgil asked. He arranged the clementines in a perfect line in front of him, then checked his phone. 
 
-Nightmare Me looks up to where she’s pointing and watches attentively, not scared yet. I crane my neck, along with everyone else. We all watch as the moon moves in front of the sun. The blazing blue sky turns gray, then dark, and Nightmare Me thinks it’s the most amazing thing I’ve ever seen. 
+I am available. Be here at noon SHARP!
 
-It’s strange how nightmares work, though.
+Virgil laid the phone facedown on the table next to the clementines.
 
-Somehow Nightmare Me knows things won’t end well. As soon as the moon finishes passing the sun, my blood rushes into my ears and my palms dampen with sweat. I look down from the sky—slowly, slowly, not wanting to see—and just as I suspected, everyone is gone. The whole crowd. Even the girl in the dress. Nothing moves. Not one single blade of grass. The field stretches on for miles and miles. The moon has pulled everyone away. All but Nightmare Me.
+“Death and destruction across the universe,” said Lola. “Godlessness around every corner.”
 
-I’m the only person on the face of the earth.
+Julius craned his neck their way. “Aw, Lola, don’t be such a downer.”
 
-I can’t tell what time it is, but I know it’s late. Like, past-midnight late. As hard as I want to not think about the nightmare, here I am, lying in bed and thinking about it. I shake my Crystal Caverns globe and watch the bats flutter around. Then I try to focus on the bumpy paint on my bedroom ceiling. My dad calls it popcorn paint. When I was a little girl, we’d pretend the ceiling was really made of popcorn and we’d open our mouths wide, wide and let it fall in.
+Virgil had long suspected that his brothers were crafted out of a factory that made perfect, athletic, perpetually happy children, and he was made from all the leftover parts. The only sign that something went wrong with Joselito and Julius were their pinkie fingers, which turned slightly inward.
 
-“Next time I’ll paint a licorice ceiling,” my dad would say. He liked to say that Twizzlers were one of his favorite food groups. I’d shake my head and say, “Chocolate, chocolate, chocolate.”
+Virgil studied his own hands as they worked away at the peel on a clementine. His fingers were long and slender. None of them turned inward.
 
-It was our routine. But we don’t do things like that anymore.
+“Lola, do you know anything about hands?” he asked. He glanced at Joselito and Julius, but they were busy talking about soccer. Their father had recently joined a grown-up soccer league. Everyone was wild about soccer except Virgil.
 
-I don’t think he knows how to be a dad to an eleven-year-old girl. You can’t sit an eleven-year-old girl on your shoulders, especially not when she’s all knees and elbows and five foot five, and you can’t make hot chocolate and wait up for Santa Claus or read picture books.
+Lola set down her newspaper. “I know that they have five fingers each, most of the time.”
 
-But it was still nice to remember the popcorn-licorice-chocolate ceiling.
+“What do you mean, most of the time?”
 
-It’s better than thinking about the nightmare.
+“I once knew a girl in my village who was born with an extra thumb.”
 
-I close my eyes and feel the hum of the ceiling fan against my cheeks. I make a promise to myself: if I have another nightmare tonight, I’ll talk to someone and ask for help. I don’t know who. But someone. Not my mom.
+“Really? What did they do with it? Did she go to the doctor and get it chopped off?”
 
-Don’t get me wrong. There are times when my mom is easy to talk to. If you catch her on a good day, she isn’t too mom-like. But I can never tell which mom I’ll get. Sometimes she is overprotective, overbearing, overeverything. I once asked her flat out if she treated me that way because I’m deaf, because that’s what it feels like sometimes.
+“No. Her family was poor. They couldn’t afford a doctor.”
 
-“I’m not overprotective because you’re deaf. I’m overprotective because I’m your mother,” she’d said.
+“What did they do, then?”
 
-But something in her eyes told me that wasn’t the whole truth and nothing but the truth.
+“Kept the extra thumb. What else?”
 
-I’m good at reading eyes. Same as lips. 
+“Did she feel like a freak?”
 
-I most definitely don’t want Mom to know about the nightmare. She’d start asking me about it every morning and every night and insist that I see a psychiatrist or something.
+“Maybe. But I told her God must know something she didn’t, and that’s why He did it.”
 
-Then again, maybe that wouldn’t be so bad.
+“Maybe He wanted her to be an excellent hitchhiker,” Virgil said.
 
-Maybe then I’d get some sleep.
+“Maybe. Or maybe she was like Ruby San Salvador.”
 
-I close my eyes.
+“Who is Ruby San Salvador?”
 
-Think of something nice.
+“Another girl from my village. She had seven sisters. Each time one of them was born, her parents had their fortunes read. But when they got to Ruby San Salvador, no one was able to see her future. Any time someone tried, they just got a blank picture. No one knew what it meant. She walked around all the time saying, ‘What is my destiny? What is my destiny?’ Finally I said, ‘No one knows, but you’re driving us all crazy.’”
 
-The coming summer. Yes. That’s what I’ll think about. Sixth grade is over and the nice, lazy summer stretches ahead. Okay, so maybe I don’t have a gazillion friends to hang out with. So what? I’ll make my own fun. I’ll explore the woods and take notes for my zoological diary. Maybe draw some bird sketches.
+Virgil thought of poor Ruby San Salvador, watching all her sisters get something that she couldn’t have.
 
-There is plenty to do.
+“What happened to her?” Virgil asked.
 
-I don’t need a gazillion friends.
+“She left to go figure it out. The village got much quieter without all the questions.” Lola narrowed her eyes at him. “What’s this about, Virgilio? Of all the questions in the world you could ask, why are you asking about hands?”
 
-I don’t even need one.
+“I just noticed that all my fingers are nice and straight. Don’t you think?”
 
-All I need is me, right?
+He set the clementine peels aside and put his hands on the table to show her.
 
-Solo—it’s the best way to go. 
+Lola nodded. “Yes, you have beautiful hands. You have the hands of a gifted pianist. We should put you in piano lessons. Li!” she called to Virgil’s mother. “Li!”
 
-It’s a lot less trouble.
+“Yes, manang?” said Virgil’s mother, who was in the middle of laughing. She was always in the middle of laughing.
+
+“How come we never put Virgilio in piano lessons, hah? He has the hands of a pianist!”
+
+But Virgil’s father answered instead. “Because boys need to play sports, not fool around on a silly piano. Right, Turtle?”
+
+Virgil shoved half a clementine in his mouth.
+
+Mr. Salinas lifted his glass of orange juice. “He just needs to put meat on his bones!”
+
+Lola fixed her eyes on Virgil’s hands and shook her head. “Ay sus,” she mumbled. “You should play the piano, anak. You could play in Madison Square Garden with fingers like that. I have no doubt!”
+
+“Maybe I’ll take lessons,” Virgil said, his voice garbled from the fruit.
+
+“Yes, yes, good idea, good idea,” said Lola. She shifted her eyes to his face and studied it. “You feeling better today, anak?”
+
+Virgil swallowed the clementine and nodded.
+
+“Hmm,” said Lola. “How is that little pet of yours?” 
+
+“He’s okay. But last night I read online that guinea pigs aren’t supposed to live alone because they’re very social animals.”
+
+“So?”
+
+“So, Gulliver’s alone.”
+
+“Is that what’s bothering you?”
+
+Gulliver had nothing to do with his Grand Failure. And normally Virgil wouldn’t tell a lie. But this was a situation where saying yes would kill two birds with one stone (or feed two birds with one seed, as Kaori liked to say). He might get another guinea pig, and Lola would stop asking about his sorrowful face.
+
+So he said, “Yes?” 
+
+Lola nodded. She didn’t understand why anyone would want a pet guinea pig, but everyone knew what it was like to be lonely.
+
+“I’ll talk to your mother,” she said.
