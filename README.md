@@ -1,51 +1,55 @@
-5
+6
 
-Turtle
+The Tiger of Elm Street
 
 
 
-It was true about guinea pigs. They weren’t supposed to live alone. Virgil wished he’d never learned that, because now he was convinced that Gulliver suffered from debilitating depression. The poor black-and-white rodent had been by himself for the past eighteen months, and Virgil couldn’t help but think he’d been pining the hours away in desperate loneliness. 
+The Tanakas lived in an ordinary house on the opposite side of dense, hilly woods, at 1401 Maple Street. It wasn’t a far walk for Virgil; just cut through the woods, cross Elm and Ash, and voilà, he was there. But that would’ve just been too easy. Instead, fate (or bad luck, Virgil wasn’t sure which) had placed Chet Bullens’s house directly on the way to the Tanakas’, at 1417 Elm. And ninety percent of the time Chet, aka the Bull, was in his driveway shooting a basketball. Virgil’s parents complained that kids today never spent any time outside because they were too busy playing video games. But not the Bull. He haunted Elm Street like a tiger on the loose.
 
-Before his appointment with Kaori, Virgil unloaded everything from his backpack and stuffed it with fleece blankets that he secretly swiped from the linen closet. Then he tucked Gulliver inside. They would journey together to the Tanakas. Then neither of them would have to be alone.
+Virgil didn’t think of him as the Bull just because Chet’s last name was Bullens. The kid really was like a bull. Always ready to charge, always fired up to call Virgil a retard or pansy. Sometimes Virgil expected smoke to come spewing from Chet Bullens’s nostrils.
 
-Gulliver didn’t chirp once when Virgil lifted him out of his cage—another sign of his misery and resentment.
+Virgil had to go several blocks out of his way to avoid 1417 Elm. It added minutes to the trip, but what else could he do? So when he emerged from the woods facing Elm Street, he immediately veered left, even though he could’ve walked one block right, crossed the street, and been at the Tanakas’ in no time at all.
 
-“The guy at the pet shop didn’t tell me guinea pigs were social creatures,” Virgil said, staring into Gulliver’s beady, round black eyes. “I’m sorry.”
+He kept his head down and hooked his thumbs through the straps of his backpack. Walk, walk, walk. When you reach the house on the corner with the green door, turn right.
 
-Virgil set Gulliver carefully atop the blankets and zipped the backpack. He made sure to leave it partially open so Gulliver could breathe.
+For whatever reason, Virgil had it in his head that if he didn’t make eye contact with anything, he would go unnoticed.
 
-“If it makes you feel any better, I know what you’re going through,” he said. At the moment, Virgil’s Grand Failure made them kindred spirits.
+Not so.
 
-Once Gulliver was tucked safely away, Virgil pulled the straps over his shoulders. It was a Thursday, which meant his mother didn’t work at the hospital until the night shift. She was on the couch with her legs tucked up, watching something on television. This was a disappointment, since Virgil hoped to slip out the front door without having an actual conversation with either of his parents.
+“Hey, retard!” 
 
-No such luck.
+It came from behind him, a fairly good distance. But that didn’t mean anything. The Bull knew how to close distances faster than a speeding bullet.
 
-“Where you going, Turtle?” she asked. 
+Virgil’s heart gave one super-loud THUMP.
 
-When they called him Turtle, it was like when Chet Bullens at school called him a retard. He knew his parents weren’t like Chet Bullens, but he also knew that they were poking fun at his shyness, just like Chet Bullens was making fun of the fact that Virgil was eleven years old and didn’t know his multiplication tables.
+The turn-at-the-green-door plan wasn’t a fail-safe. Sometimes Chet wandered away from his house, thick hands still holding his basketball. It was inevitable.
 
-Did they know how much he hated that nickname? 
+Virgil didn’t look up. He picked up his pace. 
 
-“Kaori’s,” Virgil mumbled.
+“Hey, RETARD! Don’t you know your own name?”
 
-Mrs. Salinas and Mrs. Tanaka knew each other from the hospital. They were both nurses.
+Virgil’s back dripped with sweat as he walked even faster. The sun was either getting hotter or Virgil’s nerves were getting weaker.
 
-“Bring her a mango and tell her not to eat it until it’s ripe.”
+He heard quick movement behind him. Sneakers on concrete. 
 
-Virgil hurried to the kitchen, conscious of the passing minutes, and snatched a mango from the fruit bowl. Lola had been complaining about his mother’s fruit buying for the past three days, so he knew his mom was trying to prove a point by putting every mango and clementine to good use.
+Would the Bull push him down from behind? Bounce the basketball off his head? At school he usually just shoved him into the wall. The Bull had never actually thrown him down or beaten him up or anything. But there was a first time for everything.
 
-Just as he turned the knob of the front door, his mother said, “Don’t wander too far, Turtle. Mahal kita. Be careful.”
+The Bull’s sneakers came into view. Virgil smelled the Bull’s sweat and wondered if that’s how he smelled too.
 
-He hesitated at the half-open door. “Mom?”
+“Where you goin’, retardo?” the Bull asked, walking alongside him like they were old buddies.
 
-“Yeah?” 
+Virgil didn’t answer. Walk, walk, walk.
 
-Don’t call me that.
+“Hey, lemme ask you something,” the Bull continued. “What’s five times five?”
 
-It makes me feel like I’m six years old.
+Walk, walk, walk.
 
-It makes me feel like a loser.
+“You’re a retardo, so you probably don’t know, but five times five equals the number of times I made out with your sister.”
 
-“Mahal kita,” he said, which meant “I love you.”
+The Bull howled with laughter. Walk, walk. Virgil imagined an alternate reality, one where he stopped—feet firmly planted on the ground—and looked Chet Bullens square in the eye. 
 
-He stepped into the warm sun. 
+“I don’t even have a sister, ignoramus,” Alternate Virgil would say. Then he’d grab the Bull’s shirt collar in his skinny little hand, the one with the fingers of a gifted pianist, and shove him against the nearest tree. “Take it back,” he’d say. But the Bull wouldn’t be able to talk because his collar would be too tight, so Virgil would lift him up with one hand and throw him across the neighborhood. The Bull would fly over thirty rooftops before landing on top of someone’s chimney, which would be burning hot even though it was summer and no one was using their fireplace. And he’d get stuck there and start cooking like a lump of pot roast.
+
+But Alternate Virgil didn’t exist. Only Turtle. So instead of saying a single word, Virgil took off running.
+
+The Bull didn’t chase him. He just laughed and laughed.
