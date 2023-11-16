@@ -1,121 +1,39 @@
-3
+4
 
-Help of a Different Nature
+Bells of the Buddhist Monastery
 
 
 
-Gulliver was a good friend, guinea pig or not. Virgil could tell him anything and he wouldn’t judge. And that’s what Virgil needed, only he also needed real, practical guidance.
+Twelve-year-old Kaori Tanaka—a proud Gemini—liked to tell people her parents were born in the high, misty mountains of a samurai village. In truth, they were both second-generation Japanese-Americans from Ohio. No matter. Kaori knew in her bones that they were meant to be born in the mountains. Sometimes people were just delivered to the wrong birthplace. How else could she explain her powers of second sight, which could only come from someplace magical?
 
-He needed help of a different nature.
+Kaori was mildly surprised to get a text from one of her clients (her only client, truth be told) on the first day of summer, particularly at seven forty-five in the morning. But the night before, just as she was gliding to sleep, she’d had the vision of a hawk perched on a giant fence post. Only now she realized it must have been a vulture, not a hawk. And vulture started with V, just like Virgil’s name. The connection couldn’t have been clearer.
 
-Lola had once told Virgil a story about a woman named Dayapan who’d been hungry for seven years because she didn’t know how to grow food. One day Dayapan wept because all she wanted was one grain of rice and one pea pod—anything to put in her belly. She took a bath in a spring to wash away her tears, and a Great Spirit appeared to her with armfuls of sugarcane and rice. The Great Spirit gave it all to Dayapan and told her exactly what she needed to do to grow more. Dayapan was never hungry again.
+She was already awake—she believed in waking up with the dawn whenever possible—when she heard the bells of a Buddhist monastery chime from her phone. A text message alert. She snatched it immediately and read Virgil’s message.
 
-Virgil wished that he had a Great Spirit that could tell him exactly what to do, but he only had Kaori Tanaka.
+“This must be a matter of some urgency,” she said, from her bed. She liked to talk aloud when she was alone, just in case any spirits were listening.
 
-Virgil fed Gulliver and texted Kaori as he walked down the hall for breakfast. Under normal circumstances, he wouldn’t text someone at seven forty-five in the morning, especially not on the first day of summer—but nothing about Kaori was normal. Besides, she always seemed to be awake.
+After replying to the text, Kaori lit a stick of incense, walked across her zodiac circle rug, and stepped into the hallway. She knocked gently on her younger sister’s bedroom door. No one was awake yet, least of all seven-year-old Gen. Gen was a Cancer; morning wasn’t her best time of day. Cancers were notorious night owls. 
 
-need appointment this afternoon if thats ok
+“Knocking is fruitless,” Kaori said.
 
-Virgil slipped his phone into the pocket of his pajamas and followed the unmistakable sounds of his parents and brothers, who were early risers because they seemed to have an endless stream of soccer practices.
+She opened the door and was once again assaulted and mildly offended by her sister’s hot-pink dresser, hot-pink curtains, hot-pink rug, and hot-pink comforter. It was truly the room of a second grader, complete with teddy bears scattered all over the floor and plastic teacups and teapots toppled here and there. Gen was monstrously untidy. She also had a tendency to run through hobbies. Gen was determined to become the champion of something one day. It used to be hopscotch. Then monkey bars. Then checkers. There was a discarded recorder on the floor that she had once planned to master and a chapter book on Abraham Lincoln from the time she decided to become an amateur historian. A pink jump rope lay coiled like a snake near the foot of the narrow twin bed—evidence of her latest obsession. 
 
-In the kitchen, Mom, Dad, and the J’s were drinking orange juice and letting their personalities bubble over, while Virgil tried to maneuver through all the excitement so he could get a piece of fruit or boil an egg.
+“One day she’ll mature,” Kaori said, to the spirits. She walked up to her sister and kicked the jump rope out of the way with a sigh of irritation. Gen had been jump roping around the house for a week straight, driving everyone mad. She’d already broken three water glasses.
 
-“Good morning, Virgilio!” said Joselito.
+“Gen,” Kaori said, poking her sister’s shoulder. “Wake up. We have a client coming today, and we need to prepare.”
 
-“Good morning, Turtle,” said his parents, almost in unison.
+Gen’s eyelids fluttered but didn’t open. 
 
-Then Julius: “Maayong buntag, little brother.”
+“Gen.” Kaori poked a little harder. Her sister was wearing bunny-print pajamas. Really. “Get up.”
 
-Virgil grumbled something like hello. His parents and brothers were sitting in the high-back chairs at the counter. Lola was at the breakfast table, reading the newspaper.
+Gen grumbled and pulled the comforter over her head. 
 
-“Your mother bought too many clementines, so eat as many as you can,” said Lola without looking up. Then she clucked her tongue at all the wastefulness. Virgil grabbed two clementines in each hand and tried hard not to drop them as he sat next to her. His phone buzzed in his pocket.
+Kaori smoothed the front of her own pajamas—coal black, with red trim—and said, “Okay, then. I’ll just prepare the spirit stones alone.”
 
-“What’re you reading about, Lola?” Virgil asked. He arranged the clementines in a perfect line in front of him, then checked his phone. 
+Gen tossed off the covers, eyes wide. Her dark hair stuck up in every direction. “You’re using the spirit stones?”
 
-I am available. Be here at noon SHARP!
+“I have reason to suspect I’ll need them. Just a sense. But if you’re too busy sleeping . . .”
 
-Virgil laid the phone facedown on the table next to the clementines.
+“I’m getting up, I’m getting up.” And she did.
 
-“Death and destruction across the universe,” said Lola. “Godlessness around every corner.”
-
-Julius craned his neck their way. “Aw, Lola, don’t be such a downer.”
-
-Virgil had long suspected that his brothers were crafted out of a factory that made perfect, athletic, perpetually happy children, and he was made from all the leftover parts. The only sign that something went wrong with Joselito and Julius were their pinkie fingers, which turned slightly inward.
-
-Virgil studied his own hands as they worked away at the peel on a clementine. His fingers were long and slender. None of them turned inward.
-
-“Lola, do you know anything about hands?” he asked. He glanced at Joselito and Julius, but they were busy talking about soccer. Their father had recently joined a grown-up soccer league. Everyone was wild about soccer except Virgil.
-
-Lola set down her newspaper. “I know that they have five fingers each, most of the time.”
-
-“What do you mean, most of the time?”
-
-“I once knew a girl in my village who was born with an extra thumb.”
-
-“Really? What did they do with it? Did she go to the doctor and get it chopped off?”
-
-“No. Her family was poor. They couldn’t afford a doctor.”
-
-“What did they do, then?”
-
-“Kept the extra thumb. What else?”
-
-“Did she feel like a freak?”
-
-“Maybe. But I told her God must know something she didn’t, and that’s why He did it.”
-
-“Maybe He wanted her to be an excellent hitchhiker,” Virgil said.
-
-“Maybe. Or maybe she was like Ruby San Salvador.”
-
-“Who is Ruby San Salvador?”
-
-“Another girl from my village. She had seven sisters. Each time one of them was born, her parents had their fortunes read. But when they got to Ruby San Salvador, no one was able to see her future. Any time someone tried, they just got a blank picture. No one knew what it meant. She walked around all the time saying, ‘What is my destiny? What is my destiny?’ Finally I said, ‘No one knows, but you’re driving us all crazy.’”
-
-Virgil thought of poor Ruby San Salvador, watching all her sisters get something that she couldn’t have.
-
-“What happened to her?” Virgil asked.
-
-“She left to go figure it out. The village got much quieter without all the questions.” Lola narrowed her eyes at him. “What’s this about, Virgilio? Of all the questions in the world you could ask, why are you asking about hands?”
-
-“I just noticed that all my fingers are nice and straight. Don’t you think?”
-
-He set the clementine peels aside and put his hands on the table to show her.
-
-Lola nodded. “Yes, you have beautiful hands. You have the hands of a gifted pianist. We should put you in piano lessons. Li!” she called to Virgil’s mother. “Li!”
-
-“Yes, manang?” said Virgil’s mother, who was in the middle of laughing. She was always in the middle of laughing.
-
-“How come we never put Virgilio in piano lessons, hah? He has the hands of a pianist!”
-
-But Virgil’s father answered instead. “Because boys need to play sports, not fool around on a silly piano. Right, Turtle?”
-
-Virgil shoved half a clementine in his mouth.
-
-Mr. Salinas lifted his glass of orange juice. “He just needs to put meat on his bones!”
-
-Lola fixed her eyes on Virgil’s hands and shook her head. “Ay sus,” she mumbled. “You should play the piano, anak. You could play in Madison Square Garden with fingers like that. I have no doubt!”
-
-“Maybe I’ll take lessons,” Virgil said, his voice garbled from the fruit.
-
-“Yes, yes, good idea, good idea,” said Lola. She shifted her eyes to his face and studied it. “You feeling better today, anak?”
-
-Virgil swallowed the clementine and nodded.
-
-“Hmm,” said Lola. “How is that little pet of yours?” 
-
-“He’s okay. But last night I read online that guinea pigs aren’t supposed to live alone because they’re very social animals.”
-
-“So?”
-
-“So, Gulliver’s alone.”
-
-“Is that what’s bothering you?”
-
-Gulliver had nothing to do with his Grand Failure. And normally Virgil wouldn’t tell a lie. But this was a situation where saying yes would kill two birds with one stone (or feed two birds with one seed, as Kaori liked to say). He might get another guinea pig, and Lola would stop asking about his sorrowful face.
-
-So he said, “Yes?” 
-
-Lola nodded. She didn’t understand why anyone would want a pet guinea pig, but everyone knew what it was like to be lonely.
-
-“I’ll talk to your mother,” she said.
+“Meet me in the spirit chamber,” Kaori said. She waved toward Gen’s pajamas. “But get rid of the bunnies first.”
