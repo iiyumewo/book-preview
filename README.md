@@ -1,98 +1,85 @@
-8
+9
 
-Drama in the Freezer Aisle
+Valencia
 
 
 
-“Why are you being so quiet, anak?” Lola asked as they turned down the freezer aisle at the Super Saver.
+My name could lead people into battle.
 
-“I’m always quiet,” said Virgil.
+Valencia! Valencia! Valencia!
 
-“Not with your Lola. Besides, I see a different quiet. You have a quiet of the eyes.”
+Whether you think it or write it on paper, it’s a good, strong name. The name of someone who enters a room and says “Here I am!” instead of “Where are you?”
 
-“I was just thinking.”
+Valencia Somerset—yes, it’s a good name. Mom says they were going to name me Amy, but she took one look at me and saw Valencia.
 
-“About what?
+My name is one of the only things that my mother and I agree on. Even right now. We’re in the freezer aisle at the grocery store and she’s reaching for the steak fries instead of the curly fries and, seriously? Who thinks steak fries are better?
 
-Virgil paused. “Malaya of the Crocodiles.”
+I tap her on the shoulder so she’s facing me and say, “Can’t we get the curly kind?”
 
-It wasn’t exactly a lie.
+The buzz of the freezers hums in my hearing aids and drowns out most of her words, but I don’t need to hear her clearly to know that she’s saying no and talking about how I can buy whatever kind of fries I want when I’m older and have my own money for groceries, blah blah blah.
 
-According to Lola, Malaya was a young Filipino girl who once wandered into a starving village. The village was on the bank of a great river where lush fruits and vegetables grew, but no one was allowed to eat anything because it all belonged to the crocodile. One day Malaya appeared. She plucked a guava off the tree and ate it. The villagers were terrified. They told her she couldn’t do that or they’d all be killed. But she kept eating. She started a fire and cooked some vegetables. She fed all the villagers. They were scared, but hungry, and they couldn’t resist. Sure enough, the crocodile emerged from the water and demanded to know who had eaten all his food. Malaya stepped forward, with the whole village behind her. She jabbed her thumb into her chest—“It was me.” The crocodile said he would have to eat the villagers now that they’d taken all his food. When he opened his mouth—sharp teeth glistening—Malaya lifted one of the logs from the fire with her bare hands and shoved it down his throat, killing him.
+Whatever.
 
-Malaya wasn’t afraid of anything.
+I didn’t even want to come to the grocery store because it’s boring and she never lets me get anything I want, but she said I had to come because my dad wasn’t home from work yet and she needed help loading and unloading the groceries. There’s no arguing with her, anyway. You never win—never. So now I’m here against my will, and I’m already grouchy because I had the nightmare again last night. I woke up with my heart pounding so hard I thought it would burst right out of my chest. I couldn’t go back to sleep after that. So I’ve been awake since before dawn.
 
-Neither was Valencia.
+The only good thing about waking up before dawn is you get to see the sunrise. It happens slow and fast all at once, which is my favorite thing about it. You have to catch it at just the right time. If you do, you can watch the sky shift from gray to auburn and next thing you know, it’s morning. No more darkness.
 
-Virgil didn’t have to talk to her to know that. He could tell.
+So I survived one nightmare, and now I’m stuck in another: the Super Saver with Mom.
 
-“Why Malaya?” Lola asked, snapping him out of the starving village and back into the Super Saver. 
+“Go get me three avocados,” she says, like I’m her personal servant. Then she gestures toward the produce section, which is like five hundred aisles away. Great. Now I have to find the avocados, and I don’t even like them. 
 
-He was just about to say it. He was just about to tell her, “I’m thinking of Malaya of the Crocodiles, because there’s a girl at school named Valencia who reminds me of her,” when the strangest thing happened: Valencia appeared. Right there in the freezer aisle. Valencia Somerset. She was lagging behind her mother and staring blankly at the waffle fries. Neither of them looked very pleased.
+I decide to take my time. I walk super-slow and think about all the cool things I could be doing instead of grocery shopping, like studying the bird’s nest outside my parents’ bedroom window. There are two baby birds inside. There used to be three. I pretend the third one went off on a fantastic journey somewhere, but I know better because I’ve read all about the nestling stage and I know how tough life can be for baby birds. It’s hard to protect yourself when you can’t fly. Sometimes they fall out of the nest. Sometimes another animal kidnaps and eats them. If I wasn’t searching for avocados at the Super Saver, I could be at home watching over the other two birds, even though the tree is too high for me to reach them and I have to turn my head at a crazy angle to even get a peek. But still—at least they would know someone was watching over them. Like Saint Rene watches over me.
 
-It was an odd sensation to be thinking of someone and have her unexpectedly appear. Like thoughts come to life. It must be fate, Virgil thought. He didn’t know if he believed in fate, but it made sense. How else to explain such a coincidence? Never in eleven years had he seen Valencia Somerset outside of school, before today. 
+Even though I think avocados are weird and gross, I’m excellent at choosing the perfect ones. You have to pick an avocado that is darker in color, not too green. Then you place it in the palm of your hand and squeeze—gently, real gently. If you squeeze too hard, your avocado will get all bruised up. You want it to be soft but firm. If it squishes too much, it could be rotten. But if it squishes just a little, it’s probably ripe and ready.
 
-“There are no coincidences.”
+As soon as I have three perfect avocados, an announcement comes over the loudspeaker and roars in my hearing aids. Sometimes I think life is better when you can’t hear all the noise. I can’t make out every word, but I think I hear “specials of the week,” which means it’s going to be a five-hour-long announcement. I’m close to the automatic door, so I step through to get away from the sound, but then I remember I’m holding the avocados and I don’t want to be a shoplifter so I stop where I am and look at this bulletin board near the entryway, like that was my plan the whole time.
 
-“It’s like you were meant to be friends.”
+The announcement stops as soon as I see something interesting.
 
-“Anak?” said Lola, pushing the cart forward a little as she considered the frozen pizzas. Joselito and Julius loved them, but Lola could never decide whether they were a good idea or not. “Cheap, but garbage,” she said. “You off in la-la land?”
 
-Valencia hadn’t seen him. She was busy ignoring her mother. Virgil knew that ignoring-your-mother look.
 
-What if she glanced up and saw him? Would she say hello? Should he say hello? How? How do you say hello to someone who has hearing aids? Do you talk like normal or do something special? He could wave, probably. But then what? What would he say after “hello”?
+Psychic?
 
-Virgil was suddenly very aware of his presence. He casually stepped behind his grandmother. He couldn’t let Valencia see him now. Not when he didn’t know what to say or do. What if this was fate and he’d ruin it by being . . . well, himself? 
+No adults?
 
-“Sorry, Lola,” Virgil muttered. “I was just thinking about something that happened on the last day of school.”
+I didn’t know there were psychics who only specialized in certain age groups.
 
-Lola tossed the garbage pizza in the cart. “What? What happen?” She was always ready to hear gossip, no matter where it came from.
+I nibble at my bottom lip and stare at the words “PSYCHIC” and “NO ADULTS” for what seems like a hundred years. A thought forms in my head.
 
-“Uh,” said Virgil. “They served green beans at lunch.”
+I know psychics focus on the future, but I don’t care about my future. I’m worried about my right now. And right now, I’m sleep-deprived.
 
-Lola raised her eyebrows. “If that’s your big news of the day, you really need to find more exciting things to do.”
+I yank off the card, get the number, and pull my phone out of my back pocket. I text the number one-handed, trying hard not to drop the avocados. I’m not as worried about my phone because my mom bought this super-protector so the screen wouldn’t break if I dropped it. Except she said “when,” not if—even though I’ve never broken anything in my whole life. Well, not that she knows of.
 
-Lola pulled a bag of frozen Brussels sprouts out of the freezer and plopped them into the cart, too. She inched forward. There were only four people in the aisle now—them and the Somersets. Had the lights always been so bright in here?
+Hi. just saw ur card at store. do u know anything ab dreams?
 
-It was difficult to stay hidden behind Lola. First of all, she was thin as a rail. Second of all, she turned around and said, “What you doing, Virgilio? Ay sus, you are right under my feet!”
+I wait. Right away, the word bubble pops up. She’s typing.
 
-Virgil stopped in his tracks.
+Yes. I know everything about dreams. I’ve studied Freud. Would you like an appointment?
 
-Mrs. Somerset put a bag of frozen French fries in her cart. Valencia was still staring off into the freezer like it was the door to Narnia.
+Someone bumps into me, and I realize that I’m standing too close to the automatic doors. I take a step closer to the bulletin board. I’m just about to text back when it dawns on me that the person I’m texting could be a mass murderer or something. Just because the card says “Kaori Tanaka” doesn’t mean the person is actually Kaori Tanaka. Or maybe the person is Kaori Tanaka, but Kaori Tanaka is an insane escaped madwoman who likes to eat eleven-year-olds for breakfast.
 
-“Uh,” said Virgil. 
+how old are u? how do I know ur not crazy killer?
 
-Fate had given him another chance and—what? He was going to hide behind his Lola?
+I’m 12 and don’t be ridiculous.
 
-He swallowed. “Uh,” he said, again.
+U dont sound 12. 
 
-Any minute, Valencia would look up and see him, and then he’d have to do something. Say something.
+The bubble appears again.
 
-I’m going to do it. Right now. I’m going to wave or say hello. I don’t care if I look stupid or not.
+That’s because I’m the reincarnated spirit of a 65-year-old freedom fighter. 
 
-“There are no coincidences.”
+Hmm. I’m not sure if this makes me feel better or not.
 
-He took a step forward.
+I should give this some thought.
 
-When Valencia turned her back and walked away without seeing him, he didn’t know whether to laugh or cry.
+I slip the phone back into my pocket and walk toward the other end of the store to search for my mother. Along the way I see this scrunchy-faced boy from school. I think his name is Chet. The reason I know this is because Mr. Piper likes to write names on the board when kids act up, which is totally juvenile, but sometimes teachers treat us like we’re seven years old. Teachers and parents have a lot in common. 
 
-He exhaled, defeated, and faced Lola. She was holding a bag of frozen peas in each hand, comparing prices or brands, Virgil didn’t know which.
+Anyway, this boy’s name is always on the board because he acts like a complete moron most of the time. I don’t know his last name, but it doesn’t matter. I don’t even think of him as Chet. I think of him as Scrunch. I know that’s not very nice, but what can I say? His face is scrunched up, like he’s sniffing something offensive. He’s got beady eyes and round cheeks and they’re all shoved up together. Meanness always shows on people’s faces. Sometimes you have to look hard for it. Sometimes it’s just a part of a person’s features. That’s how it is with this Chet.
 
-“Can we get ice cream?” he asked. The ice cream stood in neat rows in the opposite freezer. If he was going to be a failure, at least he could have something to look forward to. Quickly he added, “Good ice cream.” Lola had a habit of picking the cheapest kind. It didn’t make sense to Virgil. The brand she picked was three times bigger than other ice cream—it came in a big plastic tub—but it didn’t taste very good. It seemed like more ice cream would cost more money, but apparently that’s not how the world of ice cream worked. Virgil would rather have less if it tasted better.
+So Scrunch is walking toward the checkout lanes with a grown-up Scrunch—his dad, I guess—as I’m walking in the opposite direction. I stare right at him as I walk by, because I already know something’s coming. And it does. He sticks his fingers in both of his ears, crosses his eyes, and juts his tongue out of the side of his mouth. He’s been doing this ever since the first day of school, when he realized I was deaf. He really needs to come up with new material. 
 
-Lola kept her eyes on the peas. 
+“You’re a doofus,” I say.
 
-“Strawberry,” she said.
+I don’t know if he hears me or not, but I don’t care. 
 
-Virgil would have preferred French vanilla, but he didn’t want to press his luck.
-
-He was scanning the ice cream, looking for the perfect kind—one with chunks of real, actual strawberries—when another familiar face appeared, reflected in the glass. 
-
-Chet Bullens, the Bull—pug-faced boy, as Lola would say, even though she’d never seen him with her own eyes—was right behind him, talking to his father.
-
-It was as if there was a Boyd Middle School reunion at the Super Saver. The two people who ruled most of his thoughts were under this one industrial roof, right alongside two-for-one soda and bargain mangoes. 
-
-The Bull hadn’t seen him. Not yet. 
-
-Virgil immediately opened the freezer. The door fogged quickly, obscuring Bull Junior and Bull Senior (but more importantly, obscuring him). He stood there until goose bumps erupted on his arms. Until his teeth rattled. Until he was sure the Bullens boys were gone and Lola called, from the end of the aisle, “Hurry up, anak!” He grabbed the container closest to him without even looking.
-
+Let him hear.
