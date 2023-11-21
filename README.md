@@ -1,85 +1,69 @@
-9
+10
 
-Valencia
-
-
-
-My name could lead people into battle.
-
-Valencia! Valencia! Valencia!
-
-Whether you think it or write it on paper, it’s a good, strong name. The name of someone who enters a room and says “Here I am!” instead of “Where are you?”
-
-Valencia Somerset—yes, it’s a good name. Mom says they were going to name me Amy, but she took one look at me and saw Valencia.
-
-My name is one of the only things that my mother and I agree on. Even right now. We’re in the freezer aisle at the grocery store and she’s reaching for the steak fries instead of the curly fries and, seriously? Who thinks steak fries are better?
-
-I tap her on the shoulder so she’s facing me and say, “Can’t we get the curly kind?”
-
-The buzz of the freezers hums in my hearing aids and drowns out most of her words, but I don’t need to hear her clearly to know that she’s saying no and talking about how I can buy whatever kind of fries I want when I’m older and have my own money for groceries, blah blah blah.
-
-Whatever.
-
-I didn’t even want to come to the grocery store because it’s boring and she never lets me get anything I want, but she said I had to come because my dad wasn’t home from work yet and she needed help loading and unloading the groceries. There’s no arguing with her, anyway. You never win—never. So now I’m here against my will, and I’m already grouchy because I had the nightmare again last night. I woke up with my heart pounding so hard I thought it would burst right out of my chest. I couldn’t go back to sleep after that. So I’ve been awake since before dawn.
-
-The only good thing about waking up before dawn is you get to see the sunrise. It happens slow and fast all at once, which is my favorite thing about it. You have to catch it at just the right time. If you do, you can watch the sky shift from gray to auburn and next thing you know, it’s morning. No more darkness.
-
-So I survived one nightmare, and now I’m stuck in another: the Super Saver with Mom.
-
-“Go get me three avocados,” she says, like I’m her personal servant. Then she gestures toward the produce section, which is like five hundred aisles away. Great. Now I have to find the avocados, and I don’t even like them. 
-
-I decide to take my time. I walk super-slow and think about all the cool things I could be doing instead of grocery shopping, like studying the bird’s nest outside my parents’ bedroom window. There are two baby birds inside. There used to be three. I pretend the third one went off on a fantastic journey somewhere, but I know better because I’ve read all about the nestling stage and I know how tough life can be for baby birds. It’s hard to protect yourself when you can’t fly. Sometimes they fall out of the nest. Sometimes another animal kidnaps and eats them. If I wasn’t searching for avocados at the Super Saver, I could be at home watching over the other two birds, even though the tree is too high for me to reach them and I have to turn my head at a crazy angle to even get a peek. But still—at least they would know someone was watching over them. Like Saint Rene watches over me.
-
-Even though I think avocados are weird and gross, I’m excellent at choosing the perfect ones. You have to pick an avocado that is darker in color, not too green. Then you place it in the palm of your hand and squeeze—gently, real gently. If you squeeze too hard, your avocado will get all bruised up. You want it to be soft but firm. If it squishes too much, it could be rotten. But if it squishes just a little, it’s probably ripe and ready.
-
-As soon as I have three perfect avocados, an announcement comes over the loudspeaker and roars in my hearing aids. Sometimes I think life is better when you can’t hear all the noise. I can’t make out every word, but I think I hear “specials of the week,” which means it’s going to be a five-hour-long announcement. I’m close to the automatic door, so I step through to get away from the sound, but then I remember I’m holding the avocados and I don’t want to be a shoplifter so I stop where I am and look at this bulletin board near the entryway, like that was my plan the whole time.
-
-The announcement stops as soon as I see something interesting.
+The Bullens Boys
 
 
 
-Psychic?
+There was something weird about being deaf. It wasn’t natural. That girl had a lotta nerve.
 
-No adults?
+Chet kind of suspected she wasn’t really deaf, anyway. He wondered if she was just faking so she could spy on everyone. If she was deaf, how come she could talk? Even if it sounded like her mouth was full of marbles. She was probably faking that, too. Plus, she knew how to read lips, and that was just plain creepy. She probably read all their lips and kept a diary of their secrets. She probably knew everything, like who stole from the vending machine or carved curse words into the desks. And that made Chet’s skin crawl, considering he was the one who did both of those things.
 
-I didn’t know there were psychics who only specialized in certain age groups.
+Chet looked up at his father. His dad had his “after-work look,” as his mom called it—no tie, dress shirt unbuttoned at the collar, black slacks. Chet wasn’t one hundred percent sure what his dad did at work, but whatever it was, Chet wanted to do it, too. Something about corporate sales, whatever that was. Something that made Mr. Bullens an important person who sometimes had to travel to faraway places like Europe or Seattle.
 
-I nibble at my bottom lip and stare at the words “PSYCHIC” and “NO ADULTS” for what seems like a hundred years. A thought forms in my head.
+Mr. Bullens liked to say that a smart man had an answer for every question. That’s how you get respect—you know more than anyone else and you teach people who aren’t as smart as you. Respect came in two flavors, Mr. Bullens said: fear or admiration. Sometimes both. Otherwise you’re just a weakling at the bottom of the food chain, ready to get crushed under someone else’s boot.
 
-I know psychics focus on the future, but I don’t care about my future. I’m worried about my right now. And right now, I’m sleep-deprived.
+That’s why Chet liked asking his dad questions. He always got an answer. Learned something new.
 
-I yank off the card, get the number, and pull my phone out of my back pocket. I text the number one-handed, trying hard not to drop the avocados. I’m not as worried about my phone because my mom bought this super-protector so the screen wouldn’t break if I dropped it. Except she said “when,” not if—even though I’ve never broken anything in my whole life. Well, not that she knows of.
+“What makes people deaf?” Chet asked.
 
-Hi. just saw ur card at store. do u know anything ab dreams?
+Mr. Bullens stopped and picked up a family-size bag of Doritos. Chet’s dad loved Doritos. Sometimes he’d ask Chet to pick up a bag of chips for the house—any kind he wanted—and Chet always got Doritos, even though he secretly preferred Cheetos.
 
-I wait. Right away, the word bubble pops up. She’s typing.
+“Don’t know. Lots of things, I guess,” Mr. Bullens said, tossing the Doritos in the cart. “Some people are just born defective. Why? Do you see one?”
 
-Yes. I know everything about dreams. I’ve studied Freud. Would you like an appointment?
+Chet casually glanced behind him. Valencia was gone. But he could still feel her glare. 
 
-Someone bumps into me, and I realize that I’m standing too close to the automatic doors. I take a step closer to the bulletin board. I’m just about to text back when it dawns on me that the person I’m texting could be a mass murderer or something. Just because the card says “Kaori Tanaka” doesn’t mean the person is actually Kaori Tanaka. Or maybe the person is Kaori Tanaka, but Kaori Tanaka is an insane escaped madwoman who likes to eat eleven-year-olds for breakfast.
+There was definitely something wrong with that girl.
 
-how old are u? how do I know ur not crazy killer?
+Deaf people were just weird, that’s all.
 
-I’m 12 and don’t be ridiculous.
+“Nah,” Chet said. “I was just wondering.”
 
-U dont sound 12. 
+“They’ve got a few working here. Sometimes the grocery store gives jobs to those kind of people. Like a favor, you know? Disabled people don’t have it all going on upstairs”—Mr. Bullens tapped his forehead—“but they can figure out how to bag groceries.”
 
-The bubble appears again.
+Chet nodded. 
 
-That’s because I’m the reincarnated spirit of a 65-year-old freedom fighter. 
+“I heard you outside banging the basketball on the driveway last night,” Mr. Bullens said. They walked past the crackers and cookies. Mr. Bullens eyed everything without really looking at it. “Still practicing, huh?”
 
-Hmm. I’m not sure if this makes me feel better or not.
+Chet felt his neck get warm. He hoped it wouldn’t turn red.
 
-I should give this some thought.
+“Yep. I figure if I practice all summer I might make the team this time. Tryouts aren’t until fall, so . . .” Chet shrugged. Maybe if he played it casual, he’d look like it was no big deal. Fake it till you make it. He’d heard that somewhere.
 
-I slip the phone back into my pocket and walk toward the other end of the store to search for my mother. Along the way I see this scrunchy-faced boy from school. I think his name is Chet. The reason I know this is because Mr. Piper likes to write names on the board when kids act up, which is totally juvenile, but sometimes teachers treat us like we’re seven years old. Teachers and parents have a lot in common. 
+Mr. Bullens said, “The coach isn’t likely to forget the stink of last year’s tryouts.”
 
-Anyway, this boy’s name is always on the board because he acts like a complete moron most of the time. I don’t know his last name, but it doesn’t matter. I don’t even think of him as Chet. I think of him as Scrunch. I know that’s not very nice, but what can I say? His face is scrunched up, like he’s sniffing something offensive. He’s got beady eyes and round cheeks and they’re all shoved up together. Meanness always shows on people’s faces. Sometimes you have to look hard for it. Sometimes it’s just a part of a person’s features. That’s how it is with this Chet.
+They moved out of the aisle. Mr. Bullens surveyed the checkout lines to find the shortest one. Chet followed closely behind. 
 
-So Scrunch is walking toward the checkout lanes with a grown-up Scrunch—his dad, I guess—as I’m walking in the opposite direction. I stare right at him as I walk by, because I already know something’s coming. And it does. He sticks his fingers in both of his ears, crosses his eyes, and juts his tongue out of the side of his mouth. He’s been doing this ever since the first day of school, when he realized I was deaf. He really needs to come up with new material. 
+“How many shots did you make last night?” his father asked.
 
-“You’re a doofus,” I say.
+Chet shoved his hands in his pockets and lumbered along more slowly as his father committed to cashier seven.
 
-I don’t know if he hears me or not, but I don’t care. 
+“A bunch,” he said, clearing his throat. “I lost count.”
 
-Let him hear.
+Mr. Bullens turned to him and smiled widely. He patted Chet hard on the shoulder and pinched the back of his neck. “We can’t all be basketball stars. You’ll find your sport. It’s just not on the court, that’s all.”
+
+His father now turned his attention to the conveyer belt. The woman in front of them had it covered with frozen dinners, snack cakes, and two-liter sodas. The woman was large. Her house dress made her look even larger.
+
+Mr. Bullens leaned toward his son and said, under his breath, “She oughta buy more vegetables, eh?” He laughed.
+
+The woman glanced their way and gave them a snarling look, similar to the one Valencia had given Chet. He wondered if the woman had heard. He hoped she had. Sometimes the only way to teach people was to embarrass them, wake them up, make them see the error of their ways. That’s what Mr. Bullens always said. It worked, too. People usually straightened up when Mr. Bullens was around.
+
+Chet laughed. “Yeah,” he said.
+
+The woman had a lot of groceries, so it took awhile for the Bullens boys to unload their items. Hot dogs, Doritos, ground beef, ice-cream sandwiches, buttered popcorn, graham crackers, and two Hershey bars.
+
+The teenage cashier was slow and fumbly, with a face full of pimples. His name was Kenny, according to his name tag, which hung crookedly off his shirt pocket. Underneath it said TRAINEE.
+
+“By the time we get out of here, my son’ll be graduating from high school,” said Mr. Bullens.
+
+He laughed to show he was only joking.
+
+“More like college,” Chet added, loud enough so only his dad could hear.
