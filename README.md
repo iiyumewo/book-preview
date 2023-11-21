@@ -1,69 +1,79 @@
-10
+11
 
-The Bullens Boys
+Beware the Color Red
 
 
 
-There was something weird about being deaf. It wasn’t natural. That girl had a lotta nerve.
+Guinea pigs don’t have normal sleeping schedules. Virgil learned this from the internet. They were small and weak—easy for other animals to snatch up and eat—so they had to be prepared at all times. That didn’t leave much time for restful sleep; instead, guinea pigs like Gulliver slept in fits and starts, in fifteen-minute intervals. Virgil could never really tell when Gulliver was sleeping, since his eyes were always open and he spent a lot of time hiding in his plastic tree hut.
 
-Chet kind of suspected she wasn’t really deaf, anyway. He wondered if she was just faking so she could spy on everyone. If she was deaf, how come she could talk? Even if it sounded like her mouth was full of marbles. She was probably faking that, too. Plus, she knew how to read lips, and that was just plain creepy. She probably read all their lips and kept a diary of their secrets. She probably knew everything, like who stole from the vending machine or carved curse words into the desks. And that made Chet’s skin crawl, considering he was the one who did both of those things.
+That’s not to say Gulliver was quiet. Even though he still held on to his instinctual ways, he was comfortable enough that he ventured around the cage and made quite a bit of noise. He liked to rattle his water bottle, for one thing. That’s what woke Virgil up at seven o’clock on Saturday morning.
 
-Chet looked up at his father. His dad had his “after-work look,” as his mom called it—no tie, dress shirt unbuttoned at the collar, black slacks. Chet wasn’t one hundred percent sure what his dad did at work, but whatever it was, Chet wanted to do it, too. Something about corporate sales, whatever that was. Something that made Mr. Bullens an important person who sometimes had to travel to faraway places like Europe or Seattle.
+Rattle, rattle. Rattle, rattle.
 
-Mr. Bullens liked to say that a smart man had an answer for every question. That’s how you get respect—you know more than anyone else and you teach people who aren’t as smart as you. Respect came in two flavors, Mr. Bullens said: fear or admiration. Sometimes both. Otherwise you’re just a weakling at the bottom of the food chain, ready to get crushed under someone else’s boot.
+“Ugh, Gulliver,” Virgil mumbled. He threw the blankets over his head, but it was no use. He was awake for good. 
 
-That’s why Chet liked asking his dad questions. He always got an answer. Learned something new.
+Maybe it was for the best. Now he could enjoy breakfast, get Gulliver packed, and have plenty of time to find the five stones. He wondered for about the zillionth time what Kaori planned to do with them. Maybe she’d use them to pelt him in the head so he could stop doing things like hiding behind freezer doors at the Super Saver.
 
-“What makes people deaf?” Chet asked.
+He got up, stretched, and opened his bedroom door. He listened. All was quiet. Good.
 
-Mr. Bullens stopped and picked up a family-size bag of Doritos. Chet’s dad loved Doritos. Sometimes he’d ask Chet to pick up a bag of chips for the house—any kind he wanted—and Chet always got Doritos, even though he secretly preferred Cheetos.
+He walked on the balls of his feet down the hall, careful not to make any noise so he wouldn’t wake anyone up. For his sake, not theirs. His parents and brothers were a lot to take at any time of the day, but especially in the morning.
 
-“Don’t know. Lots of things, I guess,” Mr. Bullens said, tossing the Doritos in the cart. “Some people are just born defective. Why? Do you see one?”
+The whole house was quiet. 
 
-Chet casually glanced behind him. Valencia was gone. But he could still feel her glare. 
+It was marvelous.
 
-There was definitely something wrong with that girl.
+Virgil was so overjoyed at the stillness of his usually bustling house that he didn’t even glance at the kitchen table as he opened the refrigerator. He was too busy relishing in the discovery that he could hear his thoughts. No one talking loud or laughing louder. No one calling him Turtle.
 
-Deaf people were just weird, that’s all.
+He reached for the milk. The morning was off to a glorious start. He’d sit quietly and have his Cinnamon Toast Crunch and consider the day ahead. He’d think about finding five stones, each of a different size, in the woods near Kaori’s house. He wasn’t supposed to go exploring in the woods, but he knew that was the best place to find good stones. Sure, he could have stolen some out of the garden in the back, but for some reason that didn’t feel right. Like it didn’t count. He wasn’t sure Kaori would approve of garden stones.
 
-“Nah,” Chet said. “I was just wondering.”
+“You’re using too much milk.”
 
-“They’ve got a few working here. Sometimes the grocery store gives jobs to those kind of people. Like a favor, you know? Disabled people don’t have it all going on upstairs”—Mr. Bullens tapped his forehead—“but they can figure out how to bag groceries.”
+Virgil jumped. A splash of milk missed his cereal and landed with a splat on the counter.
 
-Chet nodded. 
+It was Lola, reading a magazine at the kitchen table.
 
-“I heard you outside banging the basketball on the driveway last night,” Mr. Bullens said. They walked past the crackers and cookies. Mr. Bullens eyed everything without really looking at it. “Still practicing, huh?”
+“You scared me,” said Virgil.
 
-Chet felt his neck get warm. He hoped it wouldn’t turn red.
+“You should always survey a room when you enter it,” Lola replied. “Take a good look around. Never be caught off guard.”
 
-“Yep. I figure if I practice all summer I might make the team this time. Tryouts aren’t until fall, so . . .” Chet shrugged. Maybe if he played it casual, he’d look like it was no big deal. Fake it till you make it. He’d heard that somewhere.
+“I was busy thinking.” Virgil wiped up the spill, returned the milk to the fridge, and carried his bowl to the table. Lola was right; he’d used too much milk. The bowl was filled to the brim. 
 
-Mr. Bullens said, “The coach isn’t likely to forget the stink of last year’s tryouts.”
+Lola put down her magazine and narrowed her eyes. “You’ve been doing a lot of thinking lately. What’s going on in that brain of yours? And don’t tell me more green-bean stories.”
 
-They moved out of the aisle. Mr. Bullens surveyed the checkout lines to find the shortest one. Chet followed closely behind. 
+Virgil paused. He wouldn’t tell her about Valencia. He wasn’t ready. This was one thing he didn’t want her advice on.
 
-“How many shots did you make last night?” his father asked.
+But it certainly wouldn’t hurt to get her thoughts on a few other things. 
 
-Chet shoved his hands in his pockets and lumbered along more slowly as his father committed to cashier seven.
+Virgil took a heaping bite of cereal and said, “Do you believe in fate?”
 
-“A bunch,” he said, clearing his throat. “I lost count.”
+Lola sat back. “Oh, yes,” she said. “Certainly I do.”
 
-Mr. Bullens turned to him and smiled widely. He patted Chet hard on the shoulder and pinched the back of his neck. “We can’t all be basketball stars. You’ll find your sport. It’s just not on the court, that’s all.”
+“So you believe things happen for a reason?”
 
-His father now turned his attention to the conveyer belt. The woman in front of them had it covered with frozen dinners, snack cakes, and two-liter sodas. The woman was large. Her house dress made her look even larger.
+“Ay sus. Don’t talk with your mouth full. And yes, I do. I think good things happen for a reason. And bad things, too.”
 
-Mr. Bullens leaned toward his son and said, under his breath, “She oughta buy more vegetables, eh?” He laughed.
+Virgil swallowed. “Why do you always bring up the bad things?”
 
-The woman glanced their way and gave them a snarling look, similar to the one Valencia had given Chet. He wondered if the woman had heard. He hoped she had. Sometimes the only way to teach people was to embarrass them, wake them up, make them see the error of their ways. That’s what Mr. Bullens always said. It worked, too. People usually straightened up when Mr. Bullens was around.
+“If you didn’t have bad things, you wouldn’t have good things. They would all just be things. Did you ever think about that?”
 
-Chet laughed. “Yeah,” he said.
+“No.” Virgil looked at his cereal. “I guess not.”
 
-The woman had a lot of groceries, so it took awhile for the Bullens boys to unload their items. Hot dogs, Doritos, ground beef, ice-cream sandwiches, buttered popcorn, graham crackers, and two Hershey bars.
+“I believe in signs, too, Virgilio.” She raised her eyebrow, like she was harboring a deep secret.
 
-The teenage cashier was slow and fumbly, with a face full of pimples. His name was Kenny, according to his name tag, which hung crookedly off his shirt pocket. Underneath it said TRAINEE.
+“What kind of signs?”
 
-“By the time we get out of here, my son’ll be graduating from high school,” said Mr. Bullens.
+Lola leaned forward. “Last night, I had a dream about a boy named Amado. He was walking through a meadow when he saw a bright red tree. He was so mesmerized by this tree that he decided to walk to it, even though everyone told him not to. ‘No, no,’ they said. ‘Don’t go, Amado. The tree is bad. Very bad.’ But Amado didn’t listen. He had never seen a tree like it. On he went.” She pressed her fingertip to the tabletop, as if Amado was standing right there. “There he goes, ignoring everybody, and do you know what happen?”
 
-He laughed to show he was only joking.
+Virgil lifted a spoonful of milk to his lips and slurped. “The tree ate him?”
 
-“More like college,” Chet added, loud enough so only his dad could hear.
+“Yes. Exactly.” She leaned back in her chair again. “So you know what the sign is, Virgilio?”
+
+“Don’t walk up to trees when people say not to?”
+
+“No. Beware the color red.”
+
+“Beware the color red?”
+
+“Just for today.” She pointed to Virgil. “That’s my advice to you today. You remember, Virgilio, yes?”
+
+“Yes, Lola,” said Virgil, before scooping another spoonful. “I’ll remember.”
