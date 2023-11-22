@@ -1,79 +1,49 @@
-11
+12
 
-Beware the Color Red
+Valencia
 
 
 
-Guinea pigs don’t have normal sleeping schedules. Virgil learned this from the internet. They were small and weak—easy for other animals to snatch up and eat—so they had to be prepared at all times. That didn’t leave much time for restful sleep; instead, guinea pigs like Gulliver slept in fits and starts, in fifteen-minute intervals. Virgil could never really tell when Gulliver was sleeping, since his eyes were always open and he spent a lot of time hiding in his plastic tree hut.
+There is a special light in the hallway that blinks when someone rings the doorbell. This morning I wake up and see it flashing through my half-open bedroom door. I’m not sure what kind of sadist rings doorbells at seven thirty on a Saturday morning, but I’m going to find out because I’m the only one awake. I can tell by the way the house feels. Like even the walls are asleep. 
 
-That’s not to say Gulliver was quiet. Even though he still held on to his instinctual ways, he was comfortable enough that he ventured around the cage and made quite a bit of noise. He liked to rattle his water bottle, for one thing. That’s what woke Virgil up at seven o’clock on Saturday morning.
+I walk down the hall in my bare feet. I don’t bother with my hearing aids. A man with a salt-and-pepper mustache and a girl with brown eyes and freckles are at the door. They have pamphlets tucked under their arms. I can tell they aren’t lost. They look like they are just where they need to be, which is strange because I’ve never seen them before. The man says hello and introduces the both of them, but his mustache makes it hard for me to understand him. I think his name is Craig or Greg, and her name is something indecipherable with an E, maybe. Something that doesn’t make you move your lips, like Enid.
 
-Rattle, rattle. Rattle, rattle.
+Before he and his mustache go on any further, I point to my ear and shake my head to show that I’m deaf, and he looks at me like I just sprouted vines from my head. Then he hands me a pamphlet in a big hurry, and he and the freckled girl step away from the door and wave good-bye. He moves his mouth in such an exaggerated way that I can see all his teeth when he says “Nice to meet you,” which is really easy to lip read because everyone says it. I can tell he’s saying it really loudly, as if that would make a difference. As they walk away, the girl turns and looks at me like I’m a zoo exhibit. I think about sticking my tongue out at her, but I don’t. They’re going to have a rude awakening anyway because they’re headed next door to Mrs. Franklin’s house, and she doesn’t like when people come by unannounced. Plus Mrs. Franklin has three cats, and they’re the meanest cats you ever saw. I have a feeling those cats would claw that man’s mustache off if Mrs. Franklin told them to.
 
-“Ugh, Gulliver,” Virgil mumbled. He threw the blankets over his head, but it was no use. He was awake for good. 
+I close the door and look at that pamphlet. It looks like something for church. On the outside it says, in great big letters, ONLY THOSE WHO LISTEN TO THE WORD CAN HEAR IT. That’s kinda funny, all things considered. But it’s really a shame that Greg/Craig didn’t stay to talk to me, because I bet there aren’t many people who would be willing to listen, especially since they’re going around ringing doorbells at seven thirty on a Saturday morning. I would have listened, though. 
 
-Maybe it was for the best. Now he could enjoy breakfast, get Gulliver packed, and have plenty of time to find the five stones. He wondered for about the zillionth time what Kaori planned to do with them. Maybe she’d use them to pelt him in the head so he could stop doing things like hiding behind freezer doors at the Super Saver.
+Had they stayed, I would have asked all about their church and what kinds of things they do and I would have asked if they thought God was a boy or a girl or an old man with a white beard and I would have asked if they knew about Saint Rene and if they didn’t, I would have told them. And maybe I could’ve made them coffee because I know how. And I would have asked what time their church services started and if they baptize people and if so, how?
 
-He got up, stretched, and opened his bedroom door. He listened. All was quiet. Good.
+But instead I’m staring at the pamphlet like an idiot. I toss it in the kitchen trash because I know neither of my parents will care.
 
-He walked on the balls of his feet down the hall, careful not to make any noise so he wouldn’t wake anyone up. For his sake, not theirs. His parents and brothers were a lot to take at any time of the day, but especially in the morning.
+My dad comes down the hallway. He’s scratching the back of his neck the way he always does when he first wakes up.
 
-The whole house was quiet. 
+“Who was at the door, cupcake?” I can tell that’s what he says, because it’s a logical question and he always calls me cupcake. I should probably hate it because it’s a babyish nickname, but I hope he calls me cupcake even when I’m really old, like thirty. 
 
-It was marvelous.
+“Church people,” I say. I pull the pamphlet out of the trash and show it to him. He rolls his eyes.
 
-Virgil was so overjoyed at the stillness of his usually bustling house that he didn’t even glance at the kitchen table as he opened the refrigerator. He was too busy relishing in the discovery that he could hear his thoughts. No one talking loud or laughing louder. No one calling him Turtle.
+“What do you plan to do today?” he asks. Then he yawns and walks toward the pantry. He’s going to make himself a bowl of cereal. That’s what he does every morning. Sometimes he even eats cereal for dinner. No one eats more cereal than my dad. And he likes the real sugary kind, the ones that make your teeth rot, at least according to my mom. For some reason it really irritates her that he eats so much cereal. She says it’s not real food.
 
-He reached for the milk. The morning was off to a glorious start. He’d sit quietly and have his Cinnamon Toast Crunch and consider the day ahead. He’d think about finding five stones, each of a different size, in the woods near Kaori’s house. He wasn’t supposed to go exploring in the woods, but he knew that was the best place to find good stones. Sure, he could have stolen some out of the garden in the back, but for some reason that didn’t feel right. Like it didn’t count. He wasn’t sure Kaori would approve of garden stones.
+“I’m going out to explore with my zoological diary,” I say.
 
-“You’re using too much milk.”
+I don’t mention the part about going to see Kaori.
 
-Virgil jumped. A splash of milk missed his cereal and landed with a splat on the counter.
+Turns out, my need to find a cure for nightmares outweighs my fear of maniacs. I’ve decided to take my chances. My appointment is at one o’clock. One sharp, actually. Apparently Kaori Tanaka is very serious about being on time, which makes me think maybe she’s not a killer. I don’t think punctuality would be number one on her list of worries if she was.
 
-It was Lola, reading a magazine at the kitchen table.
+For added protection, I didn’t give her my real identity. When she asked, I told her my name was Renee. She asked for my last name, but I said, “It’s just Renee.” I couldn’t think of a fake last name fast enough. 
 
-“You scared me,” said Virgil.
+I return to my room as my dad pours milk over his Cap’n Crunch. Maybe I’ll fall back to sleep. It’s still early, and I’m not ready to be awake.
 
-“You should always survey a room when you enter it,” Lola replied. “Take a good look around. Never be caught off guard.”
+I shake my Crystal Caverns globe, then get under the covers before the bats settle back down in the water.
 
-“I was busy thinking.” Virgil wiped up the spill, returned the milk to the fridge, and carried his bowl to the table. Lola was right; he’d used too much milk. The bowl was filled to the brim. 
+Kaori told me she lives on the other side of the woods. That’s good news, because it’s not far. Otherwise I don’t know how I would make it to her house. It’s also great luck because I know the woods like the back of my hand. I know there’s a special clearing where groundhogs come out at dusk. I know there’s an old abandoned water well that’s missing its rope and pail, which tells me that the woods used to be an empty field where someone had a house, which means that the trees are young, as least as far as trees go. There are sycamore, pin oaks, and poplars. I know there’s a cluster of trees with leaves that turn brilliant shades of yellow in the fall. It’s one of my favorite places, and it’s where I do most of my journaling. I’ve even walked through the whole length of it and come out the other side, into a neighborhood. Maybe I’ve even seen Kaori’s house before. You never know. 
 
-Lola put down her magazine and narrowed her eyes. “You’ve been doing a lot of thinking lately. What’s going on in that brain of yours? And don’t tell me more green-bean stories.”
+She should put a sign in her yard or something. Drum up more business.
 
-Virgil paused. He wouldn’t tell her about Valencia. He wasn’t ready. This was one thing he didn’t want her advice on.
+I close my eyes and think about that pamphlet. I wonder where Mustache’s church is. I wish I’d asked him.
 
-But it certainly wouldn’t hurt to get her thoughts on a few other things. 
+Oh, well. I can pretend I’m in a church.
 
-Virgil took a heaping bite of cereal and said, “Do you believe in fate?”
+I imagine that I’m sitting in a pew—would Mustache’s church have pews or chairs?—and looking up at a big, big altar, talking to Saint Rene. He doesn’t look at me like I have vines sprouting from my head, because he understands. I try to picture Saint Rene wearing hearing aids in both ears like I do.
 
-Lola sat back. “Oh, yes,” she said. “Certainly I do.”
-
-“So you believe things happen for a reason?”
-
-“Ay sus. Don’t talk with your mouth full. And yes, I do. I think good things happen for a reason. And bad things, too.”
-
-Virgil swallowed. “Why do you always bring up the bad things?”
-
-“If you didn’t have bad things, you wouldn’t have good things. They would all just be things. Did you ever think about that?”
-
-“No.” Virgil looked at his cereal. “I guess not.”
-
-“I believe in signs, too, Virgilio.” She raised her eyebrow, like she was harboring a deep secret.
-
-“What kind of signs?”
-
-Lola leaned forward. “Last night, I had a dream about a boy named Amado. He was walking through a meadow when he saw a bright red tree. He was so mesmerized by this tree that he decided to walk to it, even though everyone told him not to. ‘No, no,’ they said. ‘Don’t go, Amado. The tree is bad. Very bad.’ But Amado didn’t listen. He had never seen a tree like it. On he went.” She pressed her fingertip to the tabletop, as if Amado was standing right there. “There he goes, ignoring everybody, and do you know what happen?”
-
-Virgil lifted a spoonful of milk to his lips and slurped. “The tree ate him?”
-
-“Yes. Exactly.” She leaned back in her chair again. “So you know what the sign is, Virgilio?”
-
-“Don’t walk up to trees when people say not to?”
-
-“No. Beware the color red.”
-
-“Beware the color red?”
-
-“Just for today.” She pointed to Virgil. “That’s my advice to you today. You remember, Virgilio, yes?”
-
-“Yes, Lola,” said Virgil, before scooping another spoonful. “I’ll remember.”
+“Dear Saint Rene,” I say. “I’ve been thinking about that whole going-solo thing and I’m not sure it’s the best idea after all. It’d be nice if I didn’t have to go to Kaori Tanaka’s house alone, just in case she eats eleven-year-olds for breakfast. I didn’t have the nightmare last night, which is good because I need to be alert. Kaori may or may not be a mass murderer. If she is, please protect me. Thank you. Amen. I’m not sure if I’m supposed to say amen or not, but it sounds good. So. Amen.”
