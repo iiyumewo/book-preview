@@ -1,49 +1,45 @@
-12
+13
 
-Valencia
+Snakes
 
 
 
-There is a special light in the hallway that blinks when someone rings the doorbell. This morning I wake up and see it flashing through my half-open bedroom door. I’m not sure what kind of sadist rings doorbells at seven thirty on a Saturday morning, but I’m going to find out because I’m the only one awake. I can tell by the way the house feels. Like even the walls are asleep. 
+Chet woke up on Saturday morning thinking about snakes. John Davies claimed that he had found a snakeskin in the woods near the school, and Chet planned to one-up him. He wouldn’t just find snakeskin. He’d capture an actual snake.
 
-I walk down the hall in my bare feet. I don’t bother with my hearing aids. A man with a salt-and-pepper mustache and a girl with brown eyes and freckles are at the door. They have pamphlets tucked under their arms. I can tell they aren’t lost. They look like they are just where they need to be, which is strange because I’ve never seen them before. The man says hello and introduces the both of them, but his mustache makes it hard for me to understand him. I think his name is Craig or Greg, and her name is something indecipherable with an E, maybe. Something that doesn’t make you move your lips, like Enid.
+He knew just how he would do it too. He’d find a good, long stick. Then he’d look for places where snakes hang out, like in the brush or tall grass or something. And he’d poke around until he heard one move. He’d poke and poke and poke—standing at a distance, of course; he wasn’t stupid—until the snake raised its head and hissed, or whatever snakes did. And as soon as it lifted up off the ground to attack him, he would snatch it by its tail so he wouldn’t get bit, then grab it under the head, as fast as possible, with his other hand. He was quick. Quicker than a snake, that’s for sure. And he wasn’t scared either.
 
-Before he and his mustache go on any further, I point to my ear and shake my head to show that I’m deaf, and he looks at me like I just sprouted vines from my head. Then he hands me a pamphlet in a big hurry, and he and the freckled girl step away from the door and wave good-bye. He moves his mouth in such an exaggerated way that I can see all his teeth when he says “Nice to meet you,” which is really easy to lip read because everyone says it. I can tell he’s saying it really loudly, as if that would make a difference. As they walk away, the girl turns and looks at me like I’m a zoo exhibit. I think about sticking my tongue out at her, but I don’t. They’re going to have a rude awakening anyway because they’re headed next door to Mrs. Franklin’s house, and she doesn’t like when people come by unannounced. Plus Mrs. Franklin has three cats, and they’re the meanest cats you ever saw. I have a feeling those cats would claw that man’s mustache off if Mrs. Franklin told them to.
+Today would be the day. It was meant to be.
 
-I close the door and look at that pamphlet. It looks like something for church. On the outside it says, in great big letters, ONLY THOSE WHO LISTEN TO THE WORD CAN HEAR IT. That’s kinda funny, all things considered. But it’s really a shame that Greg/Craig didn’t stay to talk to me, because I bet there aren’t many people who would be willing to listen, especially since they’re going around ringing doorbells at seven thirty on a Saturday morning. I would have listened, though. 
+His favorite thing about snakes was how they swallowed their prey with one giant gulp. People were afraid of snakes, too, but that just showed how cowardly people were. Not Chet, though. At last year’s field trip, he had held a boa constrictor without a second thought, even though Miss Bosch and the keeper of the reptile house, Mr. Frederick, said it could crush bones just by squeezing.
 
-Had they stayed, I would have asked all about their church and what kinds of things they do and I would have asked if they thought God was a boy or a girl or an old man with a white beard and I would have asked if they knew about Saint Rene and if they didn’t, I would have told them. And maybe I could’ve made them coffee because I know how. And I would have asked what time their church services started and if they baptize people and if so, how?
+“You’re all cowards,” Chet had announced to everyone in earshot. “Scared of a little ol’ snake.”
 
-But instead I’m staring at the pamphlet like an idiot. I toss it in the kitchen trash because I know neither of my parents will care.
+David Kistler crossed his arms. “Doesn’t look little to me,” he said. 
 
-My dad comes down the hallway. He’s scratching the back of his neck the way he always does when he first wakes up.
+“Figures you’d be scared of it, Kissler,” said Chet. “You can’t even run ten steps without dropping dead.”
 
-“Who was at the door, cupcake?” I can tell that’s what he says, because it’s a logical question and he always calls me cupcake. I should probably hate it because it’s a babyish nickname, but I hope he calls me cupcake even when I’m really old, like thirty. 
+David was a short kid with asthma who always carried an inhaler.
 
-“Church people,” I say. I pull the pamphlet out of the trash and show it to him. He rolls his eyes.
+Chet puffed out his chest and continued, “Besides, it won’t hurt me. He knows who’s boss.”
 
-“What do you plan to do today?” he asks. Then he yawns and walks toward the pantry. He’s going to make himself a bowl of cereal. That’s what he does every morning. Sometimes he even eats cereal for dinner. No one eats more cereal than my dad. And he likes the real sugary kind, the ones that make your teeth rot, at least according to my mom. For some reason it really irritates her that he eats so much cereal. She says it’s not real food.
+Chet’s arms began to ache from the weight. He didn’t let on, but he also didn’t argue when Mr. Frederick reached over to return the snake to its tank. That was when the Valencia girl had raised her hand. She had a lotta nerve asking questions, Chet thought.
 
-“I’m going out to explore with my zoological diary,” I say.
+When Mr. Frederick called on her, she asked, “Can snakes hear?”
 
-I don’t mention the part about going to see Kaori.
+The class snickered, Chet included.
 
-Turns out, my need to find a cure for nightmares outweighs my fear of maniacs. I’ve decided to take my chances. My appointment is at one o’clock. One sharp, actually. Apparently Kaori Tanaka is very serious about being on time, which makes me think maybe she’s not a killer. I don’t think punctuality would be number one on her list of worries if she was.
+David shot everyone a mean look and said, “Shut up” to no one in particular. Everyone did. Even Chet, but only because Mr. Frederick was about to start talking again.
 
-For added protection, I didn’t give her my real identity. When she asked, I told her my name was Renee. She asked for my last name, but I said, “It’s just Renee.” I couldn’t think of a fake last name fast enough. 
+A kid the size of a first grader who sucked on an inhaler all the time sure had a lotta nerve shushing people, Chet thought.
 
-I return to my room as my dad pours milk over his Cap’n Crunch. Maybe I’ll fall back to sleep. It’s still early, and I’m not ready to be awake.
+Mr. Frederick made a seesaw motion with his hand as if to say “so-so.” 
 
-I shake my Crystal Caverns globe, then get under the covers before the bats settle back down in the water.
+“Excellent question,” said Mr. Frederick. “Snakes don’t have ears, but they can hear through vibrations in the skin. The vibrations travel to the inner ear, and that’s how the snake hears the sound. It’s not the same kind of sounds that you or I hear, though. Scientists aren’t sure what it actually sounds like.”
 
-Kaori told me she lives on the other side of the woods. That’s good news, because it’s not far. Otherwise I don’t know how I would make it to her house. It’s also great luck because I know the woods like the back of my hand. I know there’s a special clearing where groundhogs come out at dusk. I know there’s an old abandoned water well that’s missing its rope and pail, which tells me that the woods used to be an empty field where someone had a house, which means that the trees are young, as least as far as trees go. There are sycamore, pin oaks, and poplars. I know there’s a cluster of trees with leaves that turn brilliant shades of yellow in the fall. It’s one of my favorite places, and it’s where I do most of my journaling. I’ve even walked through the whole length of it and come out the other side, into a neighborhood. Maybe I’ve even seen Kaori’s house before. You never know. 
+Figures she would ask a question about ears when she didn’t have any that worked, Chet thought. Then again, she probably wore those big hearing aids just to get extra attention. She didn’t even try to hide them, which only proved his point. Plus, she spent Thursday afternoons in the resource room, which was way easier than regular class. On the other days of the week, the teachers wore microphones that worked with her hearing aids somehow. Talk about special treatment. And the teachers never called on her or asked her to come up to the board to solve problems unless she raised her hand. Meanwhile, they hounded Chet. “Come sit up front.” “Stop that.” “Leave that kid alone.” “Where’s your homework?” This Valencia girl was nothing more than a con artist.
 
-She should put a sign in her yard or something. Drum up more business.
+Chet watched her as she eyed the boa constrictor. Maybe she used the hearing aids to tune in to some other world and she was a witch, or she practiced voodoo at home or something. Maybe she spoke to people and animals with her mind. There was something off about the whole thing.
 
-I close my eyes and think about that pamphlet. I wonder where Mustache’s church is. I wish I’d asked him.
+When the class filed out, Valencia stayed behind, studying the snake, and no one even told her to move. Not even Mr. Frederick. It was like she was invisible. 
 
-Oh, well. I can pretend I’m in a church.
-
-I imagine that I’m sitting in a pew—would Mustache’s church have pews or chairs?—and looking up at a big, big altar, talking to Saint Rene. He doesn’t look at me like I have vines sprouting from my head, because he understands. I try to picture Saint Rene wearing hearing aids in both ears like I do.
-
-“Dear Saint Rene,” I say. “I’ve been thinking about that whole going-solo thing and I’m not sure it’s the best idea after all. It’d be nice if I didn’t have to go to Kaori Tanaka’s house alone, just in case she eats eleven-year-olds for breakfast. I didn’t have the nightmare last night, which is good because I need to be alert. Kaori may or may not be a mass murderer. If she is, please protect me. Thank you. Amen. I’m not sure if I’m supposed to say amen or not, but it sounds good. So. Amen.”
+That girl got away with everything.
