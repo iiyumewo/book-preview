@@ -1,45 +1,85 @@
-13
+14
 
-Snakes
+The Universe Knows
 
 
 
-Chet woke up on Saturday morning thinking about snakes. John Davies claimed that he had found a snakeskin in the woods near the school, and Chet planned to one-up him. He wouldn’t just find snakeskin. He’d capture an actual snake.
+Petty items like furniture crowded the spirit chamber, so Kaori kept it sparse. Her parents forced her to have a bed, but she convinced them to banish the dresser to the garage. Her closet was overstuffed, but it was worth it. The extra space allowed her to examine the star chart from various angles, which was exactly what she was doing at eight o’clock Saturday morning after nudging her sister out of bed. There was important business to consider: how does one unite a Pisces and Scorpio without interfering with the destiny of the stars? This was a delicate matter. It was one thing to use the existing magnetic forces of fate. It was another to manipulate the universe to do your bidding.
 
-He knew just how he would do it too. He’d find a good, long stick. Then he’d look for places where snakes hang out, like in the brush or tall grass or something. And he’d poke around until he heard one move. He’d poke and poke and poke—standing at a distance, of course; he wasn’t stupid—until the snake raised its head and hissed, or whatever snakes did. And as soon as it lifted up off the ground to attack him, he would snatch it by its tail so he wouldn’t get bit, then grab it under the head, as fast as possible, with his other hand. He was quick. Quicker than a snake, that’s for sure. And he wasn’t scared either.
+She needed a plan.
 
-Today would be the day. It was meant to be.
+“The stars are aligned in their favor,” Kaori said. She stood in front of the star chart with her shoulders squared, feet apart, hands on her hips.
 
-His favorite thing about snakes was how they swallowed their prey with one giant gulp. People were afraid of snakes, too, but that just showed how cowardly people were. Not Chet, though. At last year’s field trip, he had held a boa constrictor without a second thought, even though Miss Bosch and the keeper of the reptile house, Mr. Frederick, said it could crush bones just by squeezing.
+“How can you tell?” Gen asked. She was standing the same way, only her pajama bottoms were inside-out and she had the jump rope looped around her waist like a sash. “Looks like nothing but a bunch of dots and lines.”
 
-“You’re all cowards,” Chet had announced to everyone in earshot. “Scared of a little ol’ snake.”
+Kaori sighed. “I’ve told you a million times. The dots are stars and the lines are the constellations. And it’s not lines, in the first place. It’s pictures. See? This is Orion. The three stars are his belt. He’s hunting. Can’t you tell?”
 
-David Kistler crossed his arms. “Doesn’t look little to me,” he said. 
+Gen tilted her head to the right, then the left. “Looks like lines.”
 
-“Figures you’d be scared of it, Kissler,” said Chet. “You can’t even run ten steps without dropping dead.”
+“And this is Andromeda and Pegasus. See?” Kaori indicated points on the star chart. 
 
-David was a short kid with asthma who always carried an inhaler.
+“Yeah, I can see because they have names written right next to them. But it still looks like lines.”
 
-Chet puffed out his chest and continued, “Besides, it won’t hurt me. He knows who’s boss.”
+Kaori sighed again. “Forgive her,” she said, to the spirits.
 
-Chet’s arms began to ache from the weight. He didn’t let on, but he also didn’t argue when Mr. Frederick reached over to return the snake to its tank. That was when the Valencia girl had raised her hand. She had a lotta nerve asking questions, Chet thought.
+“How is this supposed to help us figure out what to do?”
 
-When Mr. Frederick called on her, she asked, “Can snakes hear?”
+“The stars tell us everything. It’s fate, Gen. Fate in the stars. There are no coincidences.”
 
-The class snickered, Chet included.
+Gen squinted at the chart. “Is my fate in there?”
 
-David shot everyone a mean look and said, “Shut up” to no one in particular. Everyone did. Even Chet, but only because Mr. Frederick was about to start talking again.
+“Sure. Your fate is to help me figure out what to do.”
 
-A kid the size of a first grader who sucked on an inhaler all the time sure had a lotta nerve shushing people, Chet thought.
+“I thought Virgil was just gonna bring us some rocks and we were gonna do abracadabra stuff.”
 
-Mr. Frederick made a seesaw motion with his hand as if to say “so-so.” 
+“Stones, not rocks.”
 
-“Excellent question,” said Mr. Frederick. “Snakes don’t have ears, but they can hear through vibrations in the skin. The vibrations travel to the inner ear, and that’s how the snake hears the sound. It’s not the same kind of sounds that you or I hear, though. Scientists aren’t sure what it actually sounds like.”
+“That’s the same thing.”
 
-Figures she would ask a question about ears when she didn’t have any that worked, Chet thought. Then again, she probably wore those big hearing aids just to get extra attention. She didn’t even try to hide them, which only proved his point. Plus, she spent Thursday afternoons in the resource room, which was way easier than regular class. On the other days of the week, the teachers wore microphones that worked with her hearing aids somehow. Talk about special treatment. And the teachers never called on her or asked her to come up to the board to solve problems unless she raised her hand. Meanwhile, they hounded Chet. “Come sit up front.” “Stop that.” “Leave that kid alone.” “Where’s your homework?” This Valencia girl was nothing more than a con artist.
+“Not really.”
 
-Chet watched her as she eyed the boa constrictor. Maybe she used the hearing aids to tune in to some other world and she was a witch, or she practiced voodoo at home or something. Maybe she spoke to people and animals with her mind. There was something off about the whole thing.
+“What’s the difference, then?”
 
-When the class filed out, Valencia stayed behind, studying the snake, and no one even told her to move. Not even Mr. Frederick. It was like she was invisible. 
+Kaori rubbed her head. “It’s just different. Geez. Can’t you let me think? You have no idea what we’re up against, bringing these two signs together.”
 
-That girl got away with everything.
+“Maybe they weren’t meant to be friends. Just because they have the same initials doesn’t mean anything. I have the same initials as Gertrude Tomlinson and I don’t like her at all. She broke three of my pink glitter pencils and didn’t even apologize. And she chewed off the erasers, which is totally gross.”
+
+“They’re meant to be friends. It’s fate. I know it,” Kaori said. “Somehow the universe figures these things out.”
+
+“How?”
+
+“Like putting them in the same place at the same time, or using a special force like me to help them find their way.”
+
+“They were in the same place at the same time for a whole year at school, and they didn’t even speak.”
+
+“That was Virgil, not the universe. You can see how shy he is. He carries a rodent in his backpack, Gen. A rodent.”
+
+“It’s not a rodent. It’s a guinea pig.”
+
+“That’s what guinea pigs are. They’re rodents. Just like rats or squirrels or mice.”
+
+“I think Gulliver’s cute.”
+
+“I’m just saying. It can’t be easy for Virgil. First off, he’s a Pisces.” Kaori turned away from the star chart and walked to the edge of her circle rug. Gen followed at her heels. “Look at the sign for Pisces. It’s two fish swimming in opposite directions. Do you know why?”
+
+Gen shook her head.
+
+“Because Pisces are always at odds with themselves. They’re never quite sure what to do. No self-confidence. Overly sensitive.”
+
+Gen squatted down to get a good look at the fish.
+
+“Now look at Scorpio,” Kaori said.
+
+Gen’s dark eyes shifted to the neighboring sign on the rug. “Ew. It’s a bug.”
+
+“No,” Kaori snapped, as if Gen had just cursed both their parents. “Well, yes. It’s a bug. But not just any bug. It’s a scorpion, Gen. A scorpion. Do you know what that means?”
+
+“She has a tail?”
+
+Kaori apologized to the spirits again, then said, “No. It means she’s sharp and independent. She’s assertive, full of confidence. She’s probably got a little temper, too, and a ton of friends, all competing for her attention, while poor Virgil talks to a rodent. Basically, they’re the exact opposite of each other. Nothing in common, I bet. Not a thing.” 
+
+Gen considered this. She looked up at her sister. “Maybe she likes rodents, too.”
+
+Kaori sighed for a third time.
+
+“Don’t be ridiculous,” she said.
