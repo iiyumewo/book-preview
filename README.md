@@ -1,61 +1,63 @@
-15
+16
 
-Valencia
+Down, Down, Down
 
 
 
-Squirrels are one of my favorite animals. I decide that’s going to be my focus today as I cross the woods. I’m going to study the squirrels and feed Sacred, my pet dog.
+Of all the treats in the entire world—celery sticks, baby carrots, orange slices—Gulliver liked dandelions best. It took him less than five seconds to eat an entire stem, and then he’d root around for more. For Gulliver, dandelions were a rare delicacy. For humans, they were noxious weeds that needed to stop growing. But grow they did. Dandelions were everywhere in Virgil’s neighborhood. They sprouted from the cracks in the sidewalk, leaned against rusty fence posts, sneaked into well-manicured lawns. Virgil plucked them habitually, like an explorer searching for gems. By the time he reached the woods, his left pocket was stuffed with them. He could have stuffed the other pocket, too, but he was saving that for the stones. 
 
-Okay, he’s not really my dog. But he may as well be. I take care of him more than anyone else, I guarantee you that. He could be my pet if my parents weren’t so anti-dog. They claim they aren’t, but they refuse to let me bring Sacred home because they say pets are a big responsibility and they don’t want to be the ones taking care of him. I tell them the whole point is that he would be my pet, which means I would take care of him, but they don’t listen. They don’t think I’m responsible enough to take care of a dog, but how would they know? We’ve never had one. I think they just don’t want a dog in the house. If that’s the case, they should just say so instead of blaming the whole thing on my perceived lack of responsibility. I don’t get them sometimes, I really don’t.
+He wasn’t allowed to explore the woods alone. The trees were thick in some places and sparse in others. Flowers grew intermittently; a patch of iris here, a colony of dandelions there. Lola was convinced the woods teemed with snakes, but Virgil was certain that he could find five stones here. And not just any stones, but the best stones his town had to offer.
 
-So because my parents think I don’t know how to feed or walk a dog, Sacred is stuck out there in the woods, fending for himself. I take good care of him. I bring him a bowl of food every time I go animal watching, and he always shows up. He’s the sweetest dog. You wouldn’t know it to look at him—not at first. He’s a big dog and he looks mean because he’s kinda mangy. I mean, he lives by his wits in the woods, so he isn’t exactly wagging his tail twenty-four hours a day. But all I had to do was look at his face, and I knew he was friendly. You know how I said meanness shows up in people’s faces? It’s the same for dogs, too. It’s the same for all animals who have eyes. Most of the time.
+He found two right away, just a few feet into the woods. Deeper in, the sounds of the neighborhood faded away and he found another, just like that. He was so focused on looking down, surveying the ground with his eyes, that he barely noticed the ominous rustling sound behind him. But when he heard the shuffle of feet, he jerked around—heart pounding—and stood very, very still. If there was one thing he knew, it was that you had to stay still when faced with forest beasts. Otherwise you could become their supper.
 
-Sacred is all black. For some reason people are more afraid of black dogs than dogs of any other color. Now that I think about it, it’s the same for cats, too. I don’t know why. Dogs and cats can’t exactly control the color of their fur, so why does it make a difference if they’re born with black fur or brown fur? It’s all hair. People are weird sometimes, I swear.
+He didn’t see anything. But he was certain he had heard something. And it wasn’t the blowing of the wind or the falling of a twig. Someone—or something—was moving nearby.
 
-I decide to head into the woods around ten thirty. That will give me plenty of time to document squirrel activity in my log, feed Sacred, and get to Kaori’s house without rushing. But first I need to swipe a bowl from the kitchen. Every now and then my parents have Styrofoam or plastic bowls on hand, but most of the time they don’t, so I have to secretly take a real one. I always pick the ones my parents don’t use so they won’t notice, but lately Mom’s been going through the cabinets and I think she suspects something. I can see her mind wondering, What happened to my bowls?
+“Hello?” Virgil said, quietly, like a croak.
 
-Here’s the thing: every time I bring Sacred food in the woods, I plan to return the bowl, wash it, and put it back in the cabinet. No one is the wiser, right? But every now and then (okay, most of the time), Sacred brings the bowl to an undisclosed location, never to be seen again. I know I need a better plan, but I always forget to come up with one, and I don’t think about it until I’m about to feed Sacred—like right now, for instance.
+He thought he heard something. A growl? A snort? He suddenly got the idea that there was a rhinoceros on the other side of the trees, pawing its front hoof in the dirt, bowing its head, steadying its horn, ready to charge. He imagined himself being flung into the air and landing on the thick gray skin of the giant creature before being trampled. One of Lola’s old ghost stories popped into his head, too. She said there was once a man who told all his secrets to the trees, and after he died, the trees whispered them to anyone who passed by. Maybe it wasn’t a rhinoceros, but a bunch of old trees that were ready to tell the secrets of the dead.
 
-I make a mental note. Figure out a more creative way to bring food.
+Virgil looked at his phone. It was ten fifteen. Maybe he’d just snatch up the next stones he saw and rush to Kaori’s house. She might not mind if he got there early.
 
-Maybe I could build a dog feeder and nail it to a tree. 
+But then the shuffling sound receded and disappeared, and the woods were quiet again. Virgil exhaled. His heart slowed. He looked at his feet, saw a fourth stone, and put it in his pocket. He wondered if he’d picked the best ones. He wondered so deeply that he didn’t hear the other shuffling sound, this time approaching from behind.
 
-But there’s no time for that now.
+“Hey, retardo.”
 
-I wait until my parents are in the den watching Saturday morning news—which is totally boring and has the worst closed captioning, by the way—and I snatch one of the bowls in a big hurry. I fill it up with corn flakes, five slices of bologna, one slice of cheese, and a handful of baby carrots. I know it doesn’t sound very appetizing. Trust me, it doesn’t look appetizing either. But Sacred isn’t picky.
+Virgil turned around, startled.
 
-When you’re hungry, you’re hungry.
+Chet Bullens’s meaty face was a light shade of red, like it was ready to burst. “What’re you doing out here all by yourself? Lost your mommy?”
 
-Unfortunately, I’m not able to make a simple escape. My mother tugs my shirt before I can get out the door.
+It occurred to Virgil that the Bull was also out here by himself, but he wasn’t about to point that out. Instead, Virgil said nothing. He stood there, one pocket full of stones and the other full of dandelions, feeling very dumb, like someone had lifted him out of one story and placed him in another, in these unfamiliar woods in this unfamiliar situation—alone with the Bull, who was carrying a pillowcase. Virgil wondered what the pillowcase was for, and in the space of about three seconds, he thought of a handful of terrifying scenarios: the Bull would smother him with it. He was using it to carry the bodies of dead animals. He was going to capture animals, smother them, then carry their dead bodies. 
 
-“Where are you going with that?” she asks.
+And Chet wasn’t just carrying a pillowcase. He was also wearing a Chicago Bulls T-shirt.
 
-“Outside for breakfast.”
+“Beware the color red.”
 
-She looks inside the bowl and raises an eyebrow. “That’s what you’re eating for breakfast?”
+Suddenly the rhinoceros didn’t seem so bad.
 
-“Uhh . . . yes?”
+“Whatsa matter?” the Bull said. “Oh, yeah, I forgot. You don’t know how to talk. You’re a retard. I see you going into that retard class all the time. What goes on in there, anyways? A bunch of kids wetting their pants, I bet.”
 
-Okay, I know I’m not very convincing. But if I tell her I’m going into the woods to feed a stray dog, she’ll freak out. She tends to freak out over the dumbest things.
+In addition to being afraid of the dark, carrying a guinea pig in his backpack, and stuffing his pockets full of dandelions and rocks, Virgil had another secret: he weighed only seventy-six pounds, and even though he pretended to be five feet tall, he was actually four foot eleven. 
 
-“Then I’m going exploring.” I turn sideways so she can see the small bag over my shoulder, which carries my journal (aka my zoological diary) and favorite sketching pencil.
+Virgil wasn’t sure how much the Bull weighed or how tall he was, but he certainly weighed more than seventy-six pounds. 
 
-She considers this, and I consider her.
+“You really are stupid, huh?” the Bull said. His eyes shifted to Virgil’s backpack.
 
-Did I catch her on a good day, or is she going to be a big pain?
+Chet took a step forward and Virgil took a step back, which the Bull thought was hilarious, because he immediately broke into peals of laughter before ripping Virgil’s backpack off his shoulders with such force that Virgil spun—actually spun—and hit the ground with a numbing whack that shot from the palms of his hands to his shoulders. The Bull took off like a bullet; Virgil pushed himself up and ran after him, saying, “No! No! No!” in the loudest voice he could manage without choking. 
 
-“Be careful,” she says. “And be back by the afternoon. Don’t wander too far, either.”
+“Gulliver! Gulliver!” he cried. Or maybe he only said it in his head. He wasn’t sure.
 
-My mom is like a walking list of dos and don’ts.
+The Bull darted between the trees, not laughing anymore, just running with Virgil’s backpack in his hands. A million horrifying images blazed through Virgil’s mind—the Bull tearing Gulliver in two, feeding him to a pit of lions, picking him up and tossing him into the trees—which is why he didn’t feel any better when the Bull finally stopped running and turned to face him, his cheeks flushed and his neck and hairline glistening.
 
-“Got it,” I say.
+Virgil waited for him to open the backpack, discover Gulliver, and destroy him. Instead the Bull took a giant step back, grinned evilly, and turned toward a stumpy circle of stones that Virgil had never noticed before.
 
-“I love you. Keep your phone on.”
+It was an old well. 
 
-There’s always a footnote to her I love yous. “I love you, be home by four.” “I love you, be sure to answer my texts.” “I love you, be careful.”
+With two hefty shoves, the Bull pushed the cover of the well aside and dangled the backpack over the now-open hole. 
 
-I wonder if she does it to my dad, too.
+“Say bye-bye to your stuff, retardo,” he said.
 
-“Love you, too, Mom. And I will,” I say as I walk out the door.
+The Bull let go, and the bag fell into the dark, gaping well, so far down that Virgil didn’t even hear it land.
 
-I guess I use footnotes, too.
+“Guess you’ll have to get new books, pansy boy,” the Bull said, his smile widening. “Not that you need them anyway, since you probably don’t know how to read.”
+
+The Bull wiped his hands on the front of his jeans as if he’d just finished a dirty, dirty deed—which he had. And then he turned and walked away, disappearing into the woods and leaving Virgil alone.
