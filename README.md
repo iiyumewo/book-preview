@@ -1,85 +1,61 @@
-14
+15
 
-The Universe Knows
+Valencia
 
 
 
-Petty items like furniture crowded the spirit chamber, so Kaori kept it sparse. Her parents forced her to have a bed, but she convinced them to banish the dresser to the garage. Her closet was overstuffed, but it was worth it. The extra space allowed her to examine the star chart from various angles, which was exactly what she was doing at eight o’clock Saturday morning after nudging her sister out of bed. There was important business to consider: how does one unite a Pisces and Scorpio without interfering with the destiny of the stars? This was a delicate matter. It was one thing to use the existing magnetic forces of fate. It was another to manipulate the universe to do your bidding.
+Squirrels are one of my favorite animals. I decide that’s going to be my focus today as I cross the woods. I’m going to study the squirrels and feed Sacred, my pet dog.
 
-She needed a plan.
+Okay, he’s not really my dog. But he may as well be. I take care of him more than anyone else, I guarantee you that. He could be my pet if my parents weren’t so anti-dog. They claim they aren’t, but they refuse to let me bring Sacred home because they say pets are a big responsibility and they don’t want to be the ones taking care of him. I tell them the whole point is that he would be my pet, which means I would take care of him, but they don’t listen. They don’t think I’m responsible enough to take care of a dog, but how would they know? We’ve never had one. I think they just don’t want a dog in the house. If that’s the case, they should just say so instead of blaming the whole thing on my perceived lack of responsibility. I don’t get them sometimes, I really don’t.
 
-“The stars are aligned in their favor,” Kaori said. She stood in front of the star chart with her shoulders squared, feet apart, hands on her hips.
+So because my parents think I don’t know how to feed or walk a dog, Sacred is stuck out there in the woods, fending for himself. I take good care of him. I bring him a bowl of food every time I go animal watching, and he always shows up. He’s the sweetest dog. You wouldn’t know it to look at him—not at first. He’s a big dog and he looks mean because he’s kinda mangy. I mean, he lives by his wits in the woods, so he isn’t exactly wagging his tail twenty-four hours a day. But all I had to do was look at his face, and I knew he was friendly. You know how I said meanness shows up in people’s faces? It’s the same for dogs, too. It’s the same for all animals who have eyes. Most of the time.
 
-“How can you tell?” Gen asked. She was standing the same way, only her pajama bottoms were inside-out and she had the jump rope looped around her waist like a sash. “Looks like nothing but a bunch of dots and lines.”
+Sacred is all black. For some reason people are more afraid of black dogs than dogs of any other color. Now that I think about it, it’s the same for cats, too. I don’t know why. Dogs and cats can’t exactly control the color of their fur, so why does it make a difference if they’re born with black fur or brown fur? It’s all hair. People are weird sometimes, I swear.
 
-Kaori sighed. “I’ve told you a million times. The dots are stars and the lines are the constellations. And it’s not lines, in the first place. It’s pictures. See? This is Orion. The three stars are his belt. He’s hunting. Can’t you tell?”
+I decide to head into the woods around ten thirty. That will give me plenty of time to document squirrel activity in my log, feed Sacred, and get to Kaori’s house without rushing. But first I need to swipe a bowl from the kitchen. Every now and then my parents have Styrofoam or plastic bowls on hand, but most of the time they don’t, so I have to secretly take a real one. I always pick the ones my parents don’t use so they won’t notice, but lately Mom’s been going through the cabinets and I think she suspects something. I can see her mind wondering, What happened to my bowls?
 
-Gen tilted her head to the right, then the left. “Looks like lines.”
+Here’s the thing: every time I bring Sacred food in the woods, I plan to return the bowl, wash it, and put it back in the cabinet. No one is the wiser, right? But every now and then (okay, most of the time), Sacred brings the bowl to an undisclosed location, never to be seen again. I know I need a better plan, but I always forget to come up with one, and I don’t think about it until I’m about to feed Sacred—like right now, for instance.
 
-“And this is Andromeda and Pegasus. See?” Kaori indicated points on the star chart. 
+I make a mental note. Figure out a more creative way to bring food.
 
-“Yeah, I can see because they have names written right next to them. But it still looks like lines.”
+Maybe I could build a dog feeder and nail it to a tree. 
 
-Kaori sighed again. “Forgive her,” she said, to the spirits.
+But there’s no time for that now.
 
-“How is this supposed to help us figure out what to do?”
+I wait until my parents are in the den watching Saturday morning news—which is totally boring and has the worst closed captioning, by the way—and I snatch one of the bowls in a big hurry. I fill it up with corn flakes, five slices of bologna, one slice of cheese, and a handful of baby carrots. I know it doesn’t sound very appetizing. Trust me, it doesn’t look appetizing either. But Sacred isn’t picky.
 
-“The stars tell us everything. It’s fate, Gen. Fate in the stars. There are no coincidences.”
+When you’re hungry, you’re hungry.
 
-Gen squinted at the chart. “Is my fate in there?”
+Unfortunately, I’m not able to make a simple escape. My mother tugs my shirt before I can get out the door.
 
-“Sure. Your fate is to help me figure out what to do.”
+“Where are you going with that?” she asks.
 
-“I thought Virgil was just gonna bring us some rocks and we were gonna do abracadabra stuff.”
+“Outside for breakfast.”
 
-“Stones, not rocks.”
+She looks inside the bowl and raises an eyebrow. “That’s what you’re eating for breakfast?”
 
-“That’s the same thing.”
+“Uhh . . . yes?”
 
-“Not really.”
+Okay, I know I’m not very convincing. But if I tell her I’m going into the woods to feed a stray dog, she’ll freak out. She tends to freak out over the dumbest things.
 
-“What’s the difference, then?”
+“Then I’m going exploring.” I turn sideways so she can see the small bag over my shoulder, which carries my journal (aka my zoological diary) and favorite sketching pencil.
 
-Kaori rubbed her head. “It’s just different. Geez. Can’t you let me think? You have no idea what we’re up against, bringing these two signs together.”
+She considers this, and I consider her.
 
-“Maybe they weren’t meant to be friends. Just because they have the same initials doesn’t mean anything. I have the same initials as Gertrude Tomlinson and I don’t like her at all. She broke three of my pink glitter pencils and didn’t even apologize. And she chewed off the erasers, which is totally gross.”
+Did I catch her on a good day, or is she going to be a big pain?
 
-“They’re meant to be friends. It’s fate. I know it,” Kaori said. “Somehow the universe figures these things out.”
+“Be careful,” she says. “And be back by the afternoon. Don’t wander too far, either.”
 
-“How?”
+My mom is like a walking list of dos and don’ts.
 
-“Like putting them in the same place at the same time, or using a special force like me to help them find their way.”
+“Got it,” I say.
 
-“They were in the same place at the same time for a whole year at school, and they didn’t even speak.”
+“I love you. Keep your phone on.”
 
-“That was Virgil, not the universe. You can see how shy he is. He carries a rodent in his backpack, Gen. A rodent.”
+There’s always a footnote to her I love yous. “I love you, be home by four.” “I love you, be sure to answer my texts.” “I love you, be careful.”
 
-“It’s not a rodent. It’s a guinea pig.”
+I wonder if she does it to my dad, too.
 
-“That’s what guinea pigs are. They’re rodents. Just like rats or squirrels or mice.”
+“Love you, too, Mom. And I will,” I say as I walk out the door.
 
-“I think Gulliver’s cute.”
-
-“I’m just saying. It can’t be easy for Virgil. First off, he’s a Pisces.” Kaori turned away from the star chart and walked to the edge of her circle rug. Gen followed at her heels. “Look at the sign for Pisces. It’s two fish swimming in opposite directions. Do you know why?”
-
-Gen shook her head.
-
-“Because Pisces are always at odds with themselves. They’re never quite sure what to do. No self-confidence. Overly sensitive.”
-
-Gen squatted down to get a good look at the fish.
-
-“Now look at Scorpio,” Kaori said.
-
-Gen’s dark eyes shifted to the neighboring sign on the rug. “Ew. It’s a bug.”
-
-“No,” Kaori snapped, as if Gen had just cursed both their parents. “Well, yes. It’s a bug. But not just any bug. It’s a scorpion, Gen. A scorpion. Do you know what that means?”
-
-“She has a tail?”
-
-Kaori apologized to the spirits again, then said, “No. It means she’s sharp and independent. She’s assertive, full of confidence. She’s probably got a little temper, too, and a ton of friends, all competing for her attention, while poor Virgil talks to a rodent. Basically, they’re the exact opposite of each other. Nothing in common, I bet. Not a thing.” 
-
-Gen considered this. She looked up at her sister. “Maybe she likes rodents, too.”
-
-Kaori sighed for a third time.
-
-“Don’t be ridiculous,” she said.
+I guess I use footnotes, too.
