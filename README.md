@@ -1,63 +1,93 @@
-16
+17
 
-Down, Down, Down
+Going Underground
 
 
 
-Of all the treats in the entire world—celery sticks, baby carrots, orange slices—Gulliver liked dandelions best. It took him less than five seconds to eat an entire stem, and then he’d root around for more. For Gulliver, dandelions were a rare delicacy. For humans, they were noxious weeds that needed to stop growing. But grow they did. Dandelions were everywhere in Virgil’s neighborhood. They sprouted from the cracks in the sidewalk, leaned against rusty fence posts, sneaked into well-manicured lawns. Virgil plucked them habitually, like an explorer searching for gems. By the time he reached the woods, his left pocket was stuffed with them. He could have stuffed the other pocket, too, but he was saving that for the stones. 
+There are more than seven thousand islands in the Philippines. Some don’t even have people living on them. And then there are some that once had people, but don’t anymore. Like the lowland island of Balatama. Lola had told Virgil all about it.
 
-He wasn’t allowed to explore the woods alone. The trees were thick in some places and sparse in others. Flowers grew intermittently; a patch of iris here, a colony of dandelions there. Lola was convinced the woods teemed with snakes, but Virgil was certain that he could find five stones here. And not just any stones, but the best stones his town had to offer.
+According to Lola, Balatama was once a thriving island in the south. It thrived so much that the people kept taking, taking, taking land that belonged to the mountain creatures. One day the people cut down a gathering of trees that belonged to a majestic bird named Pah. 
 
-He found two right away, just a few feet into the woods. Deeper in, the sounds of the neighborhood faded away and he found another, just like that. He was so focused on looking down, surveying the ground with his eyes, that he barely noticed the ominous rustling sound behind him. But when he heard the shuffle of feet, he jerked around—heart pounding—and stood very, very still. If there was one thing he knew, it was that you had to stay still when faced with forest beasts. Otherwise you could become their supper.
+Pah had the wingspan of an elephant and talons as sharp as knives. When his trees were cut down, he was so angry that he grew bigger and bigger. When he spread his wings, they were so large and dark that they blotted out the sunlight. This made Pah happy because the darkness blinded the villagers. They would get lost and wander in circles and then Pah would swoop down, pluck them up, and eat them. 
 
-He didn’t see anything. But he was certain he had heard something. And it wasn’t the blowing of the wind or the falling of a twig. Someone—or something—was moving nearby.
+Pah controlled the darkness and used it as a weapon. He knew that darkness turned people weak because it confused them and made them wander. The darkness created easy victims because no one could fight an enemy they could not see. Pah’s talons would sever the villagers in half before they even realized they were in trouble.
 
-“Hello?” Virgil said, quietly, like a croak.
+Virgil was eight years old the first time he heard the story of Pah. Now, as he leaned over the side of the well, he half expected Pah’s talons to come shooting out of it. Even though it was a bright sunny afternoon aboveground, the deep well that now cradled Gulliver was a dark, dark place. And darkness was darkness, whether it was in the sky or not.
 
-He thought he heard something. A growl? A snort? He suddenly got the idea that there was a rhinoceros on the other side of the trees, pawing its front hoof in the dirt, bowing its head, steadying its horn, ready to charge. He imagined himself being flung into the air and landing on the thick gray skin of the giant creature before being trampled. One of Lola’s old ghost stories popped into his head, too. She said there was once a man who told all his secrets to the trees, and after he died, the trees whispered them to anyone who passed by. Maybe it wasn’t a rhinoceros, but a bunch of old trees that were ready to tell the secrets of the dead.
+Virgil’s heart thundered in his ears. A tight knot collected in his chest and rose, rose, rose until it pushed its way to his eyes, which pooled with tears.
 
-Virgil looked at his phone. It was ten fifteen. Maybe he’d just snatch up the next stones he saw and rush to Kaori’s house. She might not mind if he got there early.
+“Gulliver?” he said.
 
-But then the shuffling sound receded and disappeared, and the woods were quiet again. Virgil exhaled. His heart slowed. He looked at his feet, saw a fourth stone, and put it in his pocket. He wondered if he’d picked the best ones. He wondered so deeply that he didn’t hear the other shuffling sound, this time approaching from behind.
+The inky blackness gaped up at him, like the throat of a hungry beast. It smelled musty and dank and deathly. But Gulliver was down there. He couldn’t leave Gulliver—not for a second. 
 
-“Hey, retardo.”
+There was hope, though.
 
-Virgil turned around, startled.
+A ladder.
 
-Chet Bullens’s meaty face was a light shade of red, like it was ready to burst. “What’re you doing out here all by yourself? Lost your mommy?”
+He had no choice.
 
-It occurred to Virgil that the Bull was also out here by himself, but he wasn’t about to point that out. Instead, Virgil said nothing. He stood there, one pocket full of stones and the other full of dandelions, feeling very dumb, like someone had lifted him out of one story and placed him in another, in these unfamiliar woods in this unfamiliar situation—alone with the Bull, who was carrying a pillowcase. Virgil wondered what the pillowcase was for, and in the space of about three seconds, he thought of a handful of terrifying scenarios: the Bull would smother him with it. He was using it to carry the bodies of dead animals. He was going to capture animals, smother them, then carry their dead bodies. 
+He emptied his pocket of the stones and set them carefully on the rim of the well.
 
-And Chet wasn’t just carrying a pillowcase. He was also wearing a Chicago Bulls T-shirt.
+Then he started his journey down.
 
-“Beware the color red.”
+The descent was unsteady. Virgil’s foot hesitated before every rung, but ultimately landed—quivering—where it belonged. With each step he gripped the ladder tighter and tighter until his knuckles ached. Down, down, down. Was the bottom of the well full of water? Was Gulliver drowning, struggling to breathe? So deep and black was the well that Virgil couldn’t see anything, not even when he was six rungs down, and for a moment he thought that maybe he’d descended for nothing; maybe the Bull hadn’t thrown Gulliver inside after all, and he’d just imagined the whole thing.
 
-Suddenly the rhinoceros didn’t seem so bad.
+But then, after what seemed like forever, there it was. Not floating in water, but slouched on its side at the bottom of the well, zipper still open just an inch, just enough for Gulliver to breathe. The darkness had invaded Virgil’s lungs and choked him, and he couldn’t breathe until he knew Gulliver was breathing, too. He listened for him—chuttering, chirping, anything—but all he heard was the drumming of his own heart.
 
-“Whatsa matter?” the Bull said. “Oh, yeah, I forgot. You don’t know how to talk. You’re a retard. I see you going into that retard class all the time. What goes on in there, anyways? A bunch of kids wetting their pants, I bet.”
+Virgil was still a fair distance from the bottom when he lowered his foot and discovered there was no longer a rung for him to step onto. He clutched the rusty bars and craned his neck to look down, slowly, slowly, so as not to lose his balance, and realized he’d reached the end of the ladder, but he needed two more rungs. At least. The backpack wasn’t within reach—not even close—and his legs weren’t long enough to touch the ground.
 
-In addition to being afraid of the dark, carrying a guinea pig in his backpack, and stuffing his pockets full of dandelions and rocks, Virgil had another secret: he weighed only seventy-six pounds, and even though he pretended to be five feet tall, he was actually four foot eleven. 
+Virgil could see the backpack. He couldn’t tell if there was any movement inside, but he certainly couldn’t just climb back out and give up. Not without Gulliver. The thought of abandoning Gulliver was far worse than the realization that he’d have to jump.
 
-Virgil wasn’t sure how much the Bull weighed or how tall he was, but he certainly weighed more than seventy-six pounds. 
+He pulled himself closer to the ladder—hugging it almost, chest to iron, as if the mere thought of jumping would send him falling to his death. And now he heard his own breathing. It broke through the silence in quick, rapid spurts, like the hiccups. All at once, he began to sweat. A faucet inside of him turned on and everything dampened: the insides of his elbows, the palms of his hands, the space between each of his perfectly shaped fingers, the back of his neck, each hairlined follicle of his forehead, his size-five feet, the space between his shoulder blades. Everything.
 
-“You really are stupid, huh?” the Bull said. His eyes shifted to Virgil’s backpack.
+If this was how the body prepared to jump, he thought, it wasn’t very useful.
 
-Chet took a step forward and Virgil took a step back, which the Bull thought was hilarious, because he immediately broke into peals of laughter before ripping Virgil’s backpack off his shoulders with such force that Virgil spun—actually spun—and hit the ground with a numbing whack that shot from the palms of his hands to his shoulders. The Bull took off like a bullet; Virgil pushed himself up and ran after him, saying, “No! No! No!” in the loudest voice he could manage without choking. 
+He lowered his right foot and pressed the toe of his sneaker against the well, then brought his right hand down to the next iron bar. He stayed like that for several moments, unsure what to do, looking like two halves of one boy—one climbing down, the other going up. He didn’t lower his left hand until his legs started to ache, and he didn’t move his other foot until he absolutely had to. When he did, he was hanging from the third-to-last rung like they were monkey bars, which he’d never been able to cross in his entire life. 
 
-“Gulliver! Gulliver!” he cried. Or maybe he only said it in his head. He wasn’t sure.
+He went down to the next bar and pointed his toe, to see if he felt the ground yet. 
 
-The Bull darted between the trees, not laughing anymore, just running with Virgil’s backpack in his hands. A million horrifying images blazed through Virgil’s mind—the Bull tearing Gulliver in two, feeding him to a pit of lions, picking him up and tossing him into the trees—which is why he didn’t feel any better when the Bull finally stopped running and turned to face him, his cheeks flushed and his neck and hairline glistening.
+Nothing.
 
-Virgil waited for him to open the backpack, discover Gulliver, and destroy him. Instead the Bull took a giant step back, grinned evilly, and turned toward a stumpy circle of stones that Virgil had never noticed before.
+He lowered himself again. Again.
 
-It was an old well. 
+Now he dangled from the ladder with nowhere else to go but down. He had to let go, but he couldn’t. A dozen images fired through his brain. He saw himself clutching a broken arm and wailing in pain. He saw twisted ankles with the bones sticking out. A head injury that left him motionless until he finally evaporated into a skeleton. A bloody gash above his eyebrow as he slammed against the well’s rugged walls.
 
-With two hefty shoves, the Bull pushed the cover of the well aside and dangled the backpack over the now-open hole. 
+These all seemed likely scenarios, what with the distance to the bottom.
 
-“Say bye-bye to your stuff, retardo,” he said.
+But there was Gulliver.
 
-The Bull let go, and the bag fell into the dark, gaping well, so far down that Virgil didn’t even hear it land.
+“Gulliver,” said Virgil. He expected his voice to echo, but it didn’t.
 
-“Guess you’ll have to get new books, pansy boy,” the Bull said, his smile widening. “Not that you need them anyway, since you probably don’t know how to read.”
+He looked up. The mouth of the well was a perfect circle above him. There was daylight there. And air. There were trees and birds and Lola. The well smelled like an old sock. The world smelled like trees and grass. He looked up, at the light. He looked down, at Gulliver.
 
-The Bull wiped his hands on the front of his jeans as if he’d just finished a dirty, dirty deed—which he had. And then he turned and walked away, disappearing into the woods and leaving Virgil alone.
+He let go.
+
+There are many terrible things that can happen to a boy who jumps into a well. He could break his head open, suffer a broken arm, twist his ankles, bones sticking out, all that. Or his cell phone could fall out of his pocket and shatter into a million pieces.
+
+Virgil’s phone and his feet hit about a half second apart. As soon as he felt the ground under his sneakers and the numb tingling of pain from impact, he realized two things: he had landed safely, and his phone had not. But the first thing he did was grab his backpack and zip it open.
+
+He reached in to feel Gulliver and heard a single, healthy chirp. Gulliver was none the wiser—he just wanted a dandelion, so Virgil gave him one.
+
+“You’re okay,” Virgil said, even though Gulliver already knew this. 
+
+Virgil’s heart had been a steady drumbeat in his ears, but it quelled now. He rested the backpack against the wall and reached for his phone.
+
+It had broken into three pieces—screen, battery, and everything else. Virgil put the pieces back together, because you don’t give up without trying, Lola always said.
+
+“All the king’s horses and all the king’s men . . . ,” said Virgil, snapping the battery in place. It fit fine, but he could see already that there was no hope for the screen. There was a crack in the corner that branched out like a spiderweb. “Couldn’t put Humpty together again.”
+
+He tried to turn it on, but nothing happened. He tried again. He shook it, he took it apart again and put it back together, he kept his thumb on the power button until it hurt. Nothing.
+
+He put the phone in his pocket anyway. Then he tipped his head back and looked up, up, up. The light was there, but it was far away, like a cloud he couldn’t touch. 
+
+He stood under the ladder. He reached toward the bottom rung, but his fingertips were nowhere near it. He got on his tiptoes, so high that it hurt, but he still couldn’t reach. He bent his knees and jumped with all his might, arms outstretched, and that didn’t do any good either.
+
+If I were Joselito or Julius, I would have no trouble reaching the ladder, he thought. But then again, if I were Joselito or Julius, I wouldn’t be down here in the first place.
+
+He jumped again.
+
+He looked toward the light.
+
+“Hello?” he said, hesitant at first. “Hello?” Then, louder: “Hello? Hello? Hello?”
+
+He knew it wouldn’t do any good. No one was ever out in the woods. And even if they were, they probably couldn’t hear him.
