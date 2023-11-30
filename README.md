@@ -1,93 +1,67 @@
-17
+18
 
-Going Underground
+Animal
 
 
 
-There are more than seven thousand islands in the Philippines. Some don’t even have people living on them. And then there are some that once had people, but don’t anymore. Like the lowland island of Balatama. Lola had told Virgil all about it.
+Chet was now convinced that Davies had lied about the snakeskin. He hadn’t found the first bit of evidence that there were any snakes in the woods. Then again, he wasn’t exactly sure what kind of evidence snakes left behind besides snakeskin—but nonetheless, he hadn’t found any. He’d even broken off a branch so he could root around. He used the branch to push aside clusters of fallen twigs and small bunches of leaves, to see if a snake was hiding underneath, fangs at the ready. And he wasn’t even scared, either. Because he was no chicken.
 
-According to Lola, Balatama was once a thriving island in the south. It thrived so much that the people kept taking, taking, taking land that belonged to the mountain creatures. One day the people cut down a gathering of trees that belonged to a majestic bird named Pah. 
+The noises in the woods were fairly standard—the occasional tweet of some stupid bird, the faraway sound of a car driving down a road in the neighborhood, the sound of Chet’s sneakers hitting the ground—but during a particularly detailed search at the base of an ash tree, while Chet diligently poked at the ground with his branch, he heard something different. It sounded like someone moving stealthily through the trees. Someone or something.
 
-Pah had the wingspan of an elephant and talons as sharp as knives. When his trees were cut down, he was so angry that he grew bigger and bigger. When he spread his wings, they were so large and dark that they blotted out the sunlight. This made Pah happy because the darkness blinded the villagers. They would get lost and wander in circles and then Pah would swoop down, pluck them up, and eat them. 
+He half expected to come face-to-face with a grizzly bear, but then he realized how ridiculous that was.
 
-Pah controlled the darkness and used it as a weapon. He knew that darkness turned people weak because it confused them and made them wander. The darkness created easy victims because no one could fight an enemy they could not see. Pah’s talons would sever the villagers in half before they even realized they were in trouble.
+He reminded himself that he was no chicken, even though his heart was pounding.
 
-Virgil was eight years old the first time he heard the story of Pah. Now, as he leaned over the side of the well, he half expected Pah’s talons to come shooting out of it. Even though it was a bright sunny afternoon aboveground, the deep well that now cradled Gulliver was a dark, dark place. And darkness was darkness, whether it was in the sky or not.
+When he didn’t see anything, he stood up straighter and turned all the way around to give the area a proper survey. He listened. He heard it again, now from another direction. The shifting, the movement. He shifted, too—quickly. So quickly that he made a lot of noise.
 
-Virgil’s heart thundered in his ears. A tight knot collected in his chest and rose, rose, rose until it pushed its way to his eyes, which pooled with tears.
+“Shhh,” he said to himself.
 
-“Gulliver?” he said.
+He raised the branch, prepared to use it as a weapon.
 
-The inky blackness gaped up at him, like the throat of a hungry beast. It smelled musty and dank and deathly. But Gulliver was down there. He couldn’t leave Gulliver—not for a second. 
+“Who’s there?” he said, but his voice was so quiet and whispery that he wasn’t sure anyone would’ve heard it.
 
-There was hope, though.
+Then it dawned on him: It was probably that idiot boy with the backpack. The skinny kid who never talked. The Chinese or whatever-he-was kid. He was probably trying to make his way back home and wanted to stay out of sight. Which made perfect sense, all things considered. Let’s face it, that kid was no match for Chet Bullens.
 
-A ladder.
+Chet’s confidence returned. It bloomed through his body until his shoulders relaxed and his chest puffed out. 
 
-He had no choice.
+“Hey, dumbo,” he said. “Is that you? Sneaking off to the bookstore?”
 
-He emptied his pocket of the stones and set them carefully on the rim of the well.
+Chet laughed like this was the funniest thing he’d said all day. He often thought he would make a good comedian, what with all his funny jokes. 
 
-Then he started his journey down.
+Chet waited. His eyes moved slowly from tree to tree. The thought of someone being so afraid that he had to sneak by made Chet feel like a warlord or warrior. Sometimes before he went to bed at night he even imagined himself that way—like it was the Middle Ages and he was an all-powerful knight, sitting atop a mighty horse, covered in armor and pointing at people with his fine-tipped sword. “Go fetch me water, you peasant!” he’d say, in his imaginings. But there were no peasants here, so he was stuck with names like dumbo. It would work better if the kid had big ears, but it still worked.
 
-The descent was unsteady. Virgil’s foot hesitated before every rung, but ultimately landed—quivering—where it belonged. With each step he gripped the ladder tighter and tighter until his knuckles ached. Down, down, down. Was the bottom of the well full of water? Was Gulliver drowning, struggling to breathe? So deep and black was the well that Virgil couldn’t see anything, not even when he was six rungs down, and for a moment he thought that maybe he’d descended for nothing; maybe the Bull hadn’t thrown Gulliver inside after all, and he’d just imagined the whole thing.
+“You can run, but you can’t hide!” yelled Chet. It wasn’t very original, but it was all he could come up with on short notice.
 
-But then, after what seemed like forever, there it was. Not floating in water, but slouched on its side at the bottom of the well, zipper still open just an inch, just enough for Gulliver to breathe. The darkness had invaded Virgil’s lungs and choked him, and he couldn’t breathe until he knew Gulliver was breathing, too. He listened for him—chuttering, chirping, anything—but all he heard was the drumming of his own heart.
+There was another rustle. But no boy.
 
-Virgil was still a fair distance from the bottom when he lowered his foot and discovered there was no longer a rung for him to step onto. He clutched the rusty bars and craned his neck to look down, slowly, slowly, so as not to lose his balance, and realized he’d reached the end of the ladder, but he needed two more rungs. At least. The backpack wasn’t within reach—not even close—and his legs weren’t long enough to touch the ground.
+Chet turned the other way and thought he heard something again, but this time from the opposite direction. So he pivoted full circle. That’s when he saw her.
 
-Virgil could see the backpack. He couldn’t tell if there was any movement inside, but he certainly couldn’t just climb back out and give up. Not without Gulliver. The thought of abandoning Gulliver was far worse than the realization that he’d have to jump.
+Valencia Somerset. 
 
-He pulled himself closer to the ladder—hugging it almost, chest to iron, as if the mere thought of jumping would send him falling to his death. And now he heard his own breathing. It broke through the silence in quick, rapid spurts, like the hiccups. All at once, he began to sweat. A faucet inside of him turned on and everything dampened: the insides of his elbows, the palms of his hands, the space between each of his perfectly shaped fingers, the back of his neck, each hairlined follicle of his forehead, his size-five feet, the space between his shoulder blades. Everything.
+Chet dropped the branch and moved closer to the tree. He told himself that he wanted to spy on her, but really he was hiding. The way she had glared at him at the Super Saver gave him the creeps. 
 
-If this was how the body prepared to jump, he thought, it wasn’t very useful.
+And now here she was in the woods, holding something. A bowl.
 
-He lowered his right foot and pressed the toe of his sneaker against the well, then brought his right hand down to the next iron bar. He stayed like that for several moments, unsure what to do, looking like two halves of one boy—one climbing down, the other going up. He didn’t lower his left hand until his legs started to ache, and he didn’t move his other foot until he absolutely had to. When he did, he was hanging from the third-to-last rung like they were monkey bars, which he’d never been able to cross in his entire life. 
+She hadn’t seen him. That was clear. She was focused on something else. Her eyes were narrow with concentration, like she was picking apart each leaf. She walked slowly, carefully, like she didn’t want to disturb anything. And all the while she held the bowl with both hands.
 
-He went down to the next bar and pointed his toe, to see if he felt the ground yet. 
+It was obvious she was looking for an animal.
 
-Nothing.
+Or maybe not an animal. Maybe a creature.
 
-He lowered himself again. Again.
+Chet moved farther behind the tree so she wouldn’t see him.
 
-Now he dangled from the ladder with nowhere else to go but down. He had to let go, but he couldn’t. A dozen images fired through his brain. He saw himself clutching a broken arm and wailing in pain. He saw twisted ankles with the bones sticking out. A head injury that left him motionless until he finally evaporated into a skeleton. A bloody gash above his eyebrow as he slammed against the well’s rugged walls.
+What if she was out here doing some kind of ritual sacrifice?
 
-These all seemed likely scenarios, what with the distance to the bottom.
+He remembered the blazing, angry look in her eyes. Something wasn’t right in that girl’s head, and it wasn’t just her ears. 
 
-But there was Gulliver.
+She crouched, peered through the trees, then stood and peered some more. What was in the bowl? 
 
-“Gulliver,” said Virgil. He expected his voice to echo, but it didn’t.
+Maybe it was a human finger. Or one dozen chicken feet. Perhaps she’d cut the ears off rabbits and she wanted to feed them to some secret Bigfoot-like beast that lived in the forest. 
 
-He looked up. The mouth of the well was a perfect circle above him. There was daylight there. And air. There were trees and birds and Lola. The well smelled like an old sock. The world smelled like trees and grass. He looked up, at the light. He looked down, at Gulliver.
+She was evil, clearly. There was something strange about a girl who couldn’t hear.
 
-He let go.
+Unless she really was lying about it.
 
-There are many terrible things that can happen to a boy who jumps into a well. He could break his head open, suffer a broken arm, twist his ankles, bones sticking out, all that. Or his cell phone could fall out of his pocket and shatter into a million pieces.
+Chet mustered up the courage to make a noise that sounded like it could be an animal. He clucked his tongue. He hooted like an owl. Quietly at first, then louder. Valencia didn’t react. He hooted again, louder still, but she just kept walking deliberately, with her bowl.
 
-Virgil’s phone and his feet hit about a half second apart. As soon as he felt the ground under his sneakers and the numb tingling of pain from impact, he realized two things: he had landed safely, and his phone had not. But the first thing he did was grab his backpack and zip it open.
-
-He reached in to feel Gulliver and heard a single, healthy chirp. Gulliver was none the wiser—he just wanted a dandelion, so Virgil gave him one.
-
-“You’re okay,” Virgil said, even though Gulliver already knew this. 
-
-Virgil’s heart had been a steady drumbeat in his ears, but it quelled now. He rested the backpack against the wall and reached for his phone.
-
-It had broken into three pieces—screen, battery, and everything else. Virgil put the pieces back together, because you don’t give up without trying, Lola always said.
-
-“All the king’s horses and all the king’s men . . . ,” said Virgil, snapping the battery in place. It fit fine, but he could see already that there was no hope for the screen. There was a crack in the corner that branched out like a spiderweb. “Couldn’t put Humpty together again.”
-
-He tried to turn it on, but nothing happened. He tried again. He shook it, he took it apart again and put it back together, he kept his thumb on the power button until it hurt. Nothing.
-
-He put the phone in his pocket anyway. Then he tipped his head back and looked up, up, up. The light was there, but it was far away, like a cloud he couldn’t touch. 
-
-He stood under the ladder. He reached toward the bottom rung, but his fingertips were nowhere near it. He got on his tiptoes, so high that it hurt, but he still couldn’t reach. He bent his knees and jumped with all his might, arms outstretched, and that didn’t do any good either.
-
-If I were Joselito or Julius, I would have no trouble reaching the ladder, he thought. But then again, if I were Joselito or Julius, I wouldn’t be down here in the first place.
-
-He jumped again.
-
-He looked toward the light.
-
-“Hello?” he said, hesitant at first. “Hello?” Then, louder: “Hello? Hello? Hello?”
-
-He knew it wouldn’t do any good. No one was ever out in the woods. And even if they were, they probably couldn’t hear him.
+A few logical explanations crossed Chet’s mind. Maybe she was taking care of stray cats. Only he hadn’t seen a single one out here. There were only squirrels. And who would bring a bowl into the woods to feed squirrels? Clearly she was up to no good. 
