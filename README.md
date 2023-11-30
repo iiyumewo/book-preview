@@ -1,67 +1,79 @@
-18
+19
 
-Animal
+Valencia
 
 
 
-Chet was now convinced that Davies had lied about the snakeskin. He hadn’t found the first bit of evidence that there were any snakes in the woods. Then again, he wasn’t exactly sure what kind of evidence snakes left behind besides snakeskin—but nonetheless, he hadn’t found any. He’d even broken off a branch so he could root around. He used the branch to push aside clusters of fallen twigs and small bunches of leaves, to see if a snake was hiding underneath, fangs at the ready. And he wasn’t even scared, either. Because he was no chicken.
+I don’t just walk through the woods. I feel them. When the leaves shake in the wind, they tickle my skin. When I step on fallen branches, the snaps move through my feet. I can’t see Sacred, but I know he’s here and he isn’t far. Where is he? To my left? To my right? I shake the bowl, and even though I can’t hear the cereal pinging around, I can feel it. I know this will bring Sacred out of his hiding place.
 
-The noises in the woods were fairly standard—the occasional tweet of some stupid bird, the faraway sound of a car driving down a road in the neighborhood, the sound of Chet’s sneakers hitting the ground—but during a particularly detailed search at the base of an ash tree, while Chet diligently poked at the ground with his branch, he heard something different. It sounded like someone moving stealthily through the trees. Someone or something.
+“Sacred?” I call. “Sacred?”
 
-He half expected to come face-to-face with a grizzly bear, but then he realized how ridiculous that was.
+I wonder if I should invent a sign name for Sacred. Dogs can learn sign language, easy. They can probably learn faster than people. I think I read that somewhere.
 
-He reminded himself that he was no chicken, even though his heart was pounding.
+I’ve been trying to learn sign language, because I read that there are deaf people who know two languages—spoken English and American Sign Language—and I want to learn both. But it’s tough when you don’t have a teacher. I tried learning online, but it’s hard to make any real sentences except “How are you?” and “What’s your name?” I asked my parents once if I could take a class, but they don’t think it’s necessary because of my hearing aids. But the hearing aids don’t work by themselves. I have to be able to see people’s faces so I can put the sounds and lip movements together. Like two pieces in a puzzle. People always say, “Oh, I know,” when I remind them to face me and talk slowly, but they still forget. Even my parents. They don’t mean to, but they do.
 
-When he didn’t see anything, he stood up straighter and turned all the way around to give the area a proper survey. He listened. He heard it again, now from another direction. The shifting, the movement. He shifted, too—quickly. So quickly that he made a lot of noise.
+I’m the only one who doesn’t forget, because I’m the only one solving the puzzle.
 
-“Shhh,” he said to himself.
+I call for Sacred again, and I wait.
 
-He raised the branch, prepared to use it as a weapon.
+It takes a while, but Sacred finally comes out of the trees. He’s happy to see me like always. He picks up his pace and trots over like a horse. His black tail swings back and forth. When I put the bowl on the ground, he nudges my hand before digging in. His nose is cold. 
 
-“Who’s there?” he said, but his voice was so quiet and whispery that he wasn’t sure anyone would’ve heard it.
+It doesn’t take him long to eat everything in the bowl. When he’s done, I squat down and scratch behind his ears. My fingertips run along his fur. It’s coarse and damp, like he’s been rolling around in wet grass. Maybe he has. Who knows what Sacred does when I’m not around?
 
-Then it dawned on him: It was probably that idiot boy with the backpack. The skinny kid who never talked. The Chinese or whatever-he-was kid. He was probably trying to make his way back home and wanted to stay out of sight. Which made perfect sense, all things considered. Let’s face it, that kid was no match for Chet Bullens.
+One thing I know for sure is I could never be a dog. They eat anything. Not me. I’m a picky eater. I don’t like avocados, peaches, green beans, or peas. I like corn, but only if it’s alone, sprinkled with salt and doused in butter. I like hamburgers, but not cheeseburgers. I like pizza, but only if it’s plain. I like clementines, but not oranges. They look almost the same, but they’re different. Clementines are much sweeter. Oranges just taste like oranges.
 
-Chet’s confidence returned. It bloomed through his body until his shoulders relaxed and his chest puffed out. 
+“Good boy,” I say.
 
-“Hey, dumbo,” he said. “Is that you? Sneaking off to the bookstore?”
+Sacred doesn’t just take off and leave me when he’s done eating. My friendship with Sacred has a lot to do with the fact that I bring him food, but it’s not the only reason he likes me. I know this because he usually hangs around after he eats. He follows me, like an assistant. When I walk, he walks. When I sit down, he sits down. And when it’s time for me to leave, he always knows somehow and goes back into the woods so he can keep rolling around in the grass or whatever he does when he’s alone.
 
-Chet laughed like this was the funniest thing he’d said all day. He often thought he would make a good comedian, what with all his funny jokes. 
+So Sacred and I walk across the clearing and I tell him what’s been going on in my life.
 
-Chet waited. His eyes moved slowly from tree to tree. The thought of someone being so afraid that he had to sneak by made Chet feel like a warlord or warrior. Sometimes before he went to bed at night he even imagined himself that way—like it was the Middle Ages and he was an all-powerful knight, sitting atop a mighty horse, covered in armor and pointing at people with his fine-tipped sword. “Go fetch me water, you peasant!” he’d say, in his imaginings. But there were no peasants here, so he was stuck with names like dumbo. It would work better if the kid had big ears, but it still worked.
+“School is out for the summer,” I say. “Everyone practically sprinted out of the building on the last day. I should be more excited, too, but I’m not. I’m not saying I like school—I mean, it’s okay—but at least it’s something to do. The good news is, I’ll be able to come out here and check on you more often. I wish you could come home with me, or just any nice home, but this will be the next best thing.”
 
-“You can run, but you can’t hide!” yelled Chet. It wasn’t very original, but it was all he could come up with on short notice.
+We reach a fallen log that’s between two trees. It’s one of my favorite places to sit, and that’s exactly what I do when I get there. I sit on the log, and Sacred sits at my feet. 
 
-There was another rustle. But no boy.
+“These people came by the house with pamphlets for their church,” I continue. “And later I’m going to meet a fortune-teller named Kaori Tanaka.”
 
-Chet turned the other way and thought he heard something again, but this time from the opposite direction. So he pivoted full circle. That’s when he saw her.
+Now that Sacred’s all caught up, I take my zoological diary out of my bag, along with my pencil. I’m here to document the squirrels. They’re my focus for the day. I like to pretend I’m Jane Goodall, except with squirrels instead of chimpanzees. It would be nice if there were chimpanzees in these woods, but that seems highly unlikely. Actually I’m not even sure there are chimpanzees anywhere in the United States, except for zoos. I’ll have to research that later. I write in my diary: where do chimps live? And I put a star next to it. Any time I put a star next to something, it means “research later.” I have a whole system going. You have to stay organized if you’re going to study wildlife. Otherwise your notes will become a complete disaster.
 
-Valencia Somerset. 
+I hate to admit it, but I started my first zoological diary because of Roberta. We used to be good friends, a long time before she gave me that Famous Deaf People in History book. The only reason she even came to the party was because her mother made her. I could tell. It was the same with most of the other girls, too. But before that we were BFFs, even though she got on my nerves a lot. Back then Roberta liked exploring the woods. She doesn’t anymore—now she wears mascara, lip gloss, and sundresses—but back then, she liked to pretend that we were adventurers.
 
-Chet dropped the branch and moved closer to the tree. He told himself that he wanted to spy on her, but really he was hiding. The way she had glared at him at the Super Saver gave him the creeps. 
+The only thing she was afraid of was snakes. Her dad had mentioned once that there were snakes in the woods, and from then on Roberta was terrified. To make her feel better, I learned everything I could about snakes. That way we’d know what to do to avoid getting bitten. I wrote it all down in a notebook. Here’s what I found out:
 
-And now here she was in the woods, holding something. A bowl.
+1. Never antagonize a snake. Don’t poke it with sticks or kick it or anything like that, unless you want it to bite you.
 
-She hadn’t seen him. That was clear. She was focused on something else. Her eyes were narrow with concentration, like she was picking apart each leaf. She walked slowly, carefully, like she didn’t want to disturb anything. And all the while she held the bowl with both hands.
+2. Never, never, never pick up a snake by its tail.
 
-It was obvious she was looking for an animal.
+3. Stay out of tall grass.
 
-Or maybe not an animal. Maybe a creature.
+4. If you see one, ignore it and walk away quietly. Most people get bitten when they try to get a closer look, or capture it.
 
-Chet moved farther behind the tree so she wouldn’t see him.
+5. If you get bitten and the snake is poisonous, seek medical attention immediately.
 
-What if she was out here doing some kind of ritual sacrifice?
+I shared all this information with Roberta, and she felt better. Life is a lot easier when you’re prepared for stuff.
 
-He remembered the blazing, angry look in her eyes. Something wasn’t right in that girl’s head, and it wasn’t just her ears. 
+I wish I had been prepared when Roberta and I stopped being friends.
 
-She crouched, peered through the trees, then stood and peered some more. What was in the bowl? 
+You know how sometimes you’re friends with someone and they start hanging out with other people and eventually you’re not friends anymore, but you can’t remember when it all happened? Well, that’s not how it was with Roberta. I know the exact date: October twelfth, fourth grade. Roberta and the other girls were playing chase and I was doing my best to play, too. But after the game was over, she walked up to me and said, “We don’t want you to play with us anymore.”
 
-Maybe it was a human finger. Or one dozen chicken feet. Perhaps she’d cut the ears off rabbits and she wanted to feed them to some secret Bigfoot-like beast that lived in the forest. 
+“Why?” I asked, even though I already knew the answer.
 
-She was evil, clearly. There was something strange about a girl who couldn’t hear.
+“The how-tos are too hard,” she said. “And you’re too slow.”
 
-Unless she really was lying about it.
+The how-tos were what we called the three ways to talk so I could understand: face me, don’t cover your mouth, and speak clearly. 
 
-Chet mustered up the courage to make a noise that sounded like it could be an animal. He clucked his tongue. He hooted like an owl. Quietly at first, then louder. Valencia didn’t react. He hooted again, louder still, but she just kept walking deliberately, with her bowl.
+When she said I was too slow, I knew what that meant, too. 
 
-A few logical explanations crossed Chet’s mind. Maybe she was taking care of stray cats. Only he hadn’t seen a single one out here. There were only squirrels. And who would bring a bowl into the woods to feed squirrels? Clearly she was up to no good. 
+When we raced, I could never tell exactly when Megan Lewis called out, “Ready, set, go!” I could see she was getting ready to call it out, but I was never totally sure she had said all three words. When we played musical chairs, I couldn’t tell when the music stopped. With hide-and-seek, I never knew when ready-or-not-here-I-come happened. I always figured it out, but I was usually two or three steps behind everyone else. It slowed down the game. I knew that. I guess I just didn’t know that everyone else knew it, too. I thought I’d fooled them. But Roberta set me straight.
+
+“Maybe you can find new friends,” she said.
+
+Like I could snap my fingers and there they’d be.
+
+That night, I cried on my mom’s lap. That’s how upset I was. And my mom said that if they were real friends, they would have figured out a game that all of us could play. I can’t stand when she says stuff like that. It makes me think she doesn’t get it. Bad friends were better than no friends. And besides, I thought they were my real friends in the first place. That was the whole reason I was crying.
+
+But I’m solo now, and everything’s working out great.
+
+I know I prayed to Saint Rene for a friend to protect me from Kaori Tanaka—just in case—but I’m over it. I’m doing just fine. Here I am, sketching in my journal, looking out for squirrels, with a loyal dog at my feet. He doesn’t care if I can’t hear him, and he doesn’t need any how-tos. 
+
+What more could I ask for?
