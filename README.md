@@ -1,39 +1,51 @@
-20
+21
 
-The Question of Yelling
+Valencia
 
 
 
-Virgil could not recall a single time in his life when he had yelled. He was sure he must have. Who goes eleven years of their life without yelling once? But he had an excellent memory, and he couldn’t remember yelling. He wondered if he had even yelled when he was a baby. He would have to ask his mother. She would know.
+Squirrels are very busy creatures. They must be the busiest animals in the world. They’re so busy that they’re forgetful. I once read that squirrels spend most of their time hiding acorns for later, but then they forget where they hid them. That’s where new trees come from. There must be thousands of acorns buried in the ground here. Maybe even millions. If I ever wind up as the only person on the face of the earth like in my nightmare and I don’t have electricity or fresh vegetables, I’ll dig into the ground and find all the forgotten acorns. Then I could feed myself for months, maybe years. And when I locate civilization again, people will ask, “How did you survive, Valencia?” And I will say, “I ate all the acorns the squirrels left behind.” And people will think, Wow, she is really clever.
 
-“You’re the quietest boy in the history of the whole Salinas family,” his mother used to say. And then, “If we ever take you back home, we’ll have to teach you how to speak. Otherwise no one will ever see you and you might get squashed by a carabao or a jeepney.” This made her laugh, even though she’d said it a million times already, so Virgil wasn’t sure how she could still think it was funny. He hadn’t found it very funny the first time, to tell you the truth. When he imagined himself getting squashed by a carabao or a jeepney, it terrified him, even though he wasn’t completely sure what either of those things were. 
+From my observations I’ve learned that squirrels keep nests in the trees. At first I thought they lived in the ground, but now I know better. They use twigs and leaves to build nests in the branches. They look like birds’ nests at first glance. I wish I could climb one of the trees and get a good look, but that would be hard. I’d probably wind up falling forty feet and breaking twenty-seven bones or something. Plus, I don’t want to interfere with nature.
 
-It’s not that he felt unloved, exactly. He just didn’t know why his parents were so preoccupied with him “coming out of his shell.” What was so bad about a shell, anyway? Turtles had survived on earth more than two hundred million years—longer than snakes or crocodiles, even. And turtles lived a long time, too. American box turtles lived to be over a hundred, and they had excellent eyesight and senses of smell. Turtles truly were extraordinary animals. What if people had forced turtles to come out of their shells two hundred million years ago? They probably wouldn’t exist anymore.
+Sometimes I do interfere, though. Only when it’s necessary. For example, a few minutes ago I gathered a handful of acorns and placed them at the base of the pine tree near my fallen log. I wanted to see what the squirrels would do with them, and guess what? Within minutes one of them scurried down, took a few of them, and darted off. They must have some kind of nut radar. 
 
-Virgil leaned against the musty wall of the well. There was a short ledge that circled the bottom, but it didn’t give him enough of a boost to reach the ladder. He wondered if he should sit. Was sitting down the same as giving up? 
+Squirrels are part of the rodent family. I wonder if all rodents like nuts? I’ve never seen a rat with an acorn, but then again you don’t usually stumble on rats in nature. I wonder why?
 
-He wondered what time it was.
+I write in my diary.
 
-He wondered if he should yell.
 
-It seemed like the sensible thing to do, but when he opened his mouth, he imagined his cries for help sailing up, up, up, booming across the woods, shaking the leaves, frightening the birds, and landing on the thick, waxy ears of Chet Bullens. Then he imagined the Bull charging forward, grunting and panting and sniffing him out like a wolf. And then he saw the Bull pick up the cover of the well and shut him inside forever.
 
-Best to wait awhile, Virgil thought, until the Bull had most likely gone home.
+* Do other rodents like nuts?
 
-Trouble was, he had no idea how long “awhile” was because he didn’t have a watch and his cell phone was broken. So he decided to go by feel. Did it feel like ten minutes or forty since he’d been down below? Who could say? Virgil wasn’t great with numbers in the first place, and he certainly wasn’t great at telling time, with or without a clock. It was something that had once frustrated his dad so much that he’d thrown up his hands one afternoon and said, “Ay dios ko! Never mind, Virgilio, just figure out the beginnings and ends and don’t worry about the time in the middle.”
+* How come I never see rats in the woods?
 
-Virgil wasn’t sure if this was a beginning, an end, the middle, or what. All he knew was that his legs ached and the sun didn’t seem as bright, so he threw back his head and called out, “Hello! Hello!” It didn’t feel like much noise, though. Could anyone hear him? He needed to be louder.
+It’s almost time to meet Kaori. I’d be lying if I said I wasn’t nervous. I stand up, put my diary in my bag, and close my eyes.
 
-“Hello! Hello!”
+“Dear Saint Rene,” I say. “I’m about to go see Kaori Tanaka. I have two favors to ask. First, please watch over me, just in case. Second, please help her help me get rid of my nightmare so I can have a good summer. Or at least a summer with good nights’ sleep.”
 
-Gulliver’s whiskers stopped moving. His round black eyes fixed on Virgil from his nest in the backpack, which Virgil was wearing backward so he could lean against the wall and watch Gulliver at the same time. 
+I open my eyes, take a deep breath, and start walking to the other side of the woods. I’m so lost in thought that I almost don’t notice the old well, and I always notice it, because it’s one of my favorite things. I think it’s from colonial times, but I’m not sure. It’s still in decent shape. Probably because it’s made of stone—all except the heavy board that covers it. But something looks different now.
 
-“Hello! Hello! Help! Help!” 
+The board has been moved.
 
-He’d never called out for help before. It sounded strange. But if he was ever in need of help, this was it. He mustered all the strength he could—from deep, deep down—and took a large breath that filled his chest like a balloon.
+I walk up to the well. Sure enough, the mouth is wide open. Someone’s been goofing off. And here’s evidence: a small pile of rocks, neatly placed. I bet someone opened the well so they could throw them inside. Seems like a boring way to pass an afternoon, but I try it anyway. I drop them in, one by one.
 
-Then he yelled, his most powerful yet. “Help! Help!”
+It’s dark down there.
 
-His voice startled him. It didn’t sound like his. It charged through his body. Down to his toes. Who knew he could be this loud?
+Very dark.
 
-If only his parents could hear him now.
+It makes me think of the Crystal Caverns, only something’s not right. I don’t know what it is, but I shudder and snatch my hands away.
+
+Did I hear something? Or was it my imagination?
+
+I take a small step back like something might jump out at me, then lean forward and peer in again. Blackness. Sometimes when I can’t hear something, I feel it. Am I feeling something now?
+
+I should put the lid back. That’s what’s bothering me. An animal might fall inside. What if a squirrel went exploring and couldn’t get out?
+
+Saint Rene blessed the children so he could protect them. That’s how I like to think of myself, with the squirrels. I’m not saying I’m as brave as Saint Rene—I mean, he got kidnapped and everything—only that I’d like to be like him. I know the squirrels can take care of themselves, mostly. But the open well might confuse them.
+
+Yes, I better put it back.
+
+So I do.
+
+But even when the well is safely covered, I have a weird feeling. It doesn’t go away—not even when I’m out of the woods and crossing the street to Kaori’s house.
