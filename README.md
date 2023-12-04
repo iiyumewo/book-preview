@@ -1,69 +1,83 @@
-22
-
-Imagine You Are Someplace Else
+The Issue of Time
 
 
 
-The darkness had teeth that snapped and clenched, and here was Virgil, sitting at the bottom of its throat. He couldn’t even see his hand in front of his face. There wasn’t a sliver of light anywhere. Not a single pinprick.
+Kaori Tanaka’s first word was “nomad,” even though she had no nomadic blood. Not as far as she could tell, judging by her parents. But one thing she did inherit from her parents—specifically, her mother—was a keen sense of time. One of her first orders of business as the older sister was to teach Gen how to tell time. Unfortunately, Gen didn’t have much of a knack for it. 
 
-“The Bull wants to kill me,” he said.
+“What time is it?” Kaori had asked one afternoon a few years before, when Gen was just starting to learn. Kaori had drawn a clock on a sheet of paper. Anyone could see it was three thirty—the peak of the witching hour—but Gen stared at the clock blankly. Instead of giving the right time, Gen sat down with her legs stretched in front of her and grabbed her toes. She’d always been a wiggly girl.
 
-He never would have believed it, not truly—but what other explanation could there be? His cries for help had traveled through the trees and landed on the Bull’s waxy ears, just like he’d predicted. Virgil had shielded Gulliver when the stones fell. Then the light went away. The Bull wanted to taunt them, then kill him. It was the only logical explanation. Who else would do such a thing?
+“I don’t know,” Gen had said. “But who cares? All I have to do is look at Mom’s cell phone or the microwave, and it will tell me right away, with the numbers.”
 
-Now his heart beat quickly. Too quickly. Maybe I’m having a heart attack, he thought. Was this what they felt like? Could eleven-year-olds have heart attacks?
+“This has numbers, too,” Kaori said.
 
-He couldn’t breathe, either. His lungs had been stolen by the darkness. He sputtered and clutched his backpack close to him, both arms wrapped around it like a life raft. Gulliver chirped, not knowing any better. Or maybe he did, and he was saying good-bye.
+“But it doesn’t tell me straight out.”
 
-When Gulliver stopped chirping, a strange sound filled the well—a wail mixed with a gasp and a hiccup. Virgil frantically searched the darkness before he realized the sound was coming from him. So maybe he wasn’t going to die of a heart attack. It would be a breathing attack instead. Or both.
+Kaori sighed. “Life can’t always be straight out, you know.”
 
-Virgil’s breath caught in his throat. Now he was half gasping, half choking.
+That was the first and last time Kaori had tried to teach Gen how to tell time, but she never stopped hounding her about one of life’s most important lessons: be punctual.
 
-“Calm down, calm down,” he said to himself, only because of the gasping it sounded more like “Ca-AH-lm-AH-AH-D-D-AH-OWN.” But it worked, kind of. He stopped half choking, anyway. But he didn’t let go of the backpack. He told himself he was protecting Gulliver, but he knew it was the other way around.
+One of the things Kaori appreciated most about Virgil was his punctuality. If he said he would be somewhere at eight thirteen and forty seconds, that’s what time he would arrive. Sometimes a little earlier, but never later. Not even by a minute.
 
-The bottom of a well is a quiet, quiet place. Virgil had never realized how noisy the world was until there was nothing to hear. No distant cars driving by. No humming of a nearby air conditioner. No birds chirping. He couldn’t even hear the turning of a leaf.
+That’s why she knew something was wrong even before she looked at the clock and saw that he was fifteen minutes late.
 
-“This is the end,” he said. He perched on the low ledge. “No one will know where I am. Generations of Salinases will continue on forever, far into the future, and not one of them will ever know that I’m here.”
+“It’s not like him to just not show up. He didn’t even give us a ‘Sorry, can’t make it,’” Kaori told Gen. They were standing side by side at the living-room window, looking through the blinds, waiting for Virgil’s skinny little body to come up the walk. “It doesn’t seem right that he wouldn’t text, especially because he knows how precious my time is. And I have that new client coming later.”
 
-People would say, “We once had a boy called Virgilio in our family, but no one knows what became of him,” and they would make the sign of the cross. All the while, his bones would lie at the bottom of the pit, with Gulliver’s little bones next to him, so small that they’d look like thread.
+“Maybe he forgot,” said Gen.
 
-Virgil’s throat was dry. His head suddenly felt very heavy, like someone had placed a brick on his forehead and asked him to balance it there. He opened his mouth to take a deep, deep breath, but he couldn’t. His lungs felt full of air and empty all at once. His body was a bundle of nerves, all being pulled and snapped at the same time. 
+“Doubtful,” said Kaori.
 
-And now it wasn’t just the darkness or the silence. It was the smell, too. Mildew and old, stale water. It reminded him of how the sink in the kitchen smelled when the drain clogged up.
+“Maybe his mom or dad made him do something else and he didn’t have a chance to tell us.”
 
-He closed his eyes. “Imagine you are someplace else.” That’s what his mother used to tell him when he was very little and had bad dreams. Before she called him Turtle. Before they figured out that he wouldn’t be perfect like his brothers. “Imagine you are someplace else.”
+That seemed more likely. Parents had a way of getting in the middle of things and screwing everything up. But still. . . .
 
-He imagined his bedroom, with Gulliver rattling the water bottle. He imagined Kaori’s house, with the circle rug and the incense that smelled like burned flowers. He imagined Lola at the table, reading her newspaper and shaking her head.
+“It doesn’t seem right,” said Kaori. “He still would have texted or something.” She opened the front door and took a step outside. She crossed her arms and scanned the road with her dark, lined eyes. This proved the level of her concern. Kaori never stepped outside for clients. She always demanded the password. When you have powers of second sight, you have to protect yourself. Look what happened to the Salem witches.
 
-All the imagining might have worked if Virgil’s ears had been closed instead of his eyes, but because they were open and alert, they picked up a distant sound in the darkness.
+Gen stood next to her and crossed her arms, too. If their parents had been home, they would have told them to shut the door because they were letting all the air conditioning out and didn’t they know how much money they were wasting? But praise be to the ancestors, Mr. and Mrs. Tanaka had Saturday errands.
 
-Ignore it, thought Virgil. Probably just Gulliver.
+“I have a bad feeling,” Kaori said. She tipped her head back and looked to the sky for signs. But it was a bright blue, cloudless day. Some would say it was a beautiful day, but Kaori thought rainstorms had much more personality.
 
-Only he knew what Gulliver sounded like, and this wasn’t it. Gulliver’s noises were harmless and simple—squeaks when he was hungry, chirps when he was happy. Guinea pigs didn’t do much else. They certainly didn’t ruffle anything. They didn’t have anything to ruffle.
+Gen’s eyes widened. “Maybe you should consult the crystals.”
 
-And that’s what this sound was. 
+Oh, yes. The crystals. How could she have forgotten the crystals? But those were reserved for special occasions. She wasn’t sure if a client being twenty minutes late qualified.
 
-“Imagine you are someplace else. Imagine you are someplace else.”
+“Let’s text him again, just for good measure,” Kaori said. 
 
-He went back to his bedroom, but it faded as soon as he thought of it. Kaori’s circle rug vanished, too. Even Lola and her table were swallowed up.
+They walked back inside and went to Kaori’s bedroom, where she had laid her cell phone just outside the door. She preferred not to use her phone in the chamber because she wasn’t sure how the world of the hereafter felt about such things. She’d explained cell phones and the internet to the spirits, so they were all up to speed, but you never know.
 
-The sound—what was it?
+Virgil didn’t answer the text, so Kaori called. It went straight to his generic voicemail. Kaori hung up, leaned against the wall in the hallway, and chewed her bottom lip.
 
-Wings, that’s what. Wings being opened. Wings being tucked. 
+At eleven thirty she developed a pit of concern in her belly.
 
-A colony of bats, maybe, ready to descend with their daggered mouths.
+At eleven thirty-five, she considered that something could be gravely wrong.
 
-Louder, now.
+By eleven forty, she was convinced that Virgil Salinas had met a terrible fate and it was time to consult the crystals.
 
-Virgil didn’t dare open his eyes. His feet were blocks of cement, his legs were rubber bands, and his mouth was clenched so tightly that he was breathing only through his nose—but it wasn’t breathing, really. More like hyperventilating. 
+She kept them in a small velvet sling bag inside a locked box behind a stack of spell books under her bed. Gen was the only one who knew where the crystals were, and it was her greatest secret as far as both of them were concerned. Gen had to swear on her past, present, and future lives that she would never reveal the location of the crystals for as long as she lived.
 
-The sound of quick, useless breaths spurting through his nostrils filled the space, but the rustling grew even louder, and he realized now that it couldn’t be bats.
+When she asked Kaori where the crystals came from, Kaori put her finger to her lips and said, “The keeper of secrets may ask no questions.”
 
-This was something fuller.
+In truth, Kaori had gotten them at a garage sale. Mrs. Tanaka loved going to garage sales. She thought it was “absolutely wonderful” that Kaori wanted to go along because she called it “mother-daughter time,” but really Kaori just wanted to see what kind of treasures people were giving away for a nickel. That’s where she had found the crystals. 
 
-This had plumes.
+The woman selling them said you were supposed to use them to fill flower vases. “For decoration,” the lady said. But Kaori knew better. The secrets of the universe buried themselves in unusual and beautiful objects such as these, and only a select few could pull those secrets out. So she had bought the crystals for ten cents.
 
-Feathers.
+Kaori locked her bedroom door as Gen wiggled under the bed for the box. Once she had it, she carried it gingerly to the rug. Kaori opened it, removed the bag, and shook out the crystals. Then they both leaned forward. A close inspection.
 
-Wings that could blanket an entire village.
+“What do you see?” asked Gen quietly.
 
-This was Pah.
+Kaori studied each crystal without touching it. They were all different colors. Red, blue, clear, and pink. She scanned the clear plastic one with particular interest.
+
+“He didn’t forget the appointment,” she said. “He’s been detained somehow.”
+
+“Detayed? What’s that mean?”
+
+“Not detayed. Detained. Held up.”
+
+Gen gasped. “You mean with a gun?”
+
+“No, no. Not held up with a gun. Just . . . interrupted somehow.” She straightened her back and added, with some authority, “Something has prevented him from being here.”
+
+“But we know that already. Since he’s not here.”
+
+Kaori ignored her. Gen was a helpful assistant but could be insufferable. 
+
+“Something’s happened,” said Kaori. “Of this, I am certain.”
