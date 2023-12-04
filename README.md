@@ -1,83 +1,29 @@
-The Issue of Time
+Santa Fe Railway
+SOUTHEAST KANSAS MAY 27, 1936
 
 
 
-Kaori Tanaka’s first word was “nomad,” even though she had no nomadic blood. Not as far as she could tell, judging by her parents. But one thing she did inherit from her parents—specifically, her mother—was a keen sense of time. One of her first orders of business as the older sister was to teach Gen how to tell time. Unfortunately, Gen didn’t have much of a knack for it. 
 
-“What time is it?” Kaori had asked one afternoon a few years before, when Gen was just starting to learn. Kaori had drawn a clock on a sheet of paper. Anyone could see it was three thirty—the peak of the witching hour—but Gen stared at the clock blankly. Instead of giving the right time, Gen sat down with her legs stretched in front of her and grabbed her toes. She’d always been a wiggly girl.
 
-“I don’t know,” Gen had said. “But who cares? All I have to do is look at Mom’s cell phone or the microwave, and it will tell me right away, with the numbers.”
+he movement of the train rocked me like a lullaby. I closed my eyes to the dusty countryside and imagined the sign I knew only
+from stories. The one just outside of town with big blue letters:
+MANIFEST: A TOWN WITH A RICH PAST AND A BRIGHT FUTURE.
+I thought about my daddy, Gideon Tucker. He does his best talking in stories, but in recent weeks, those had become few and far between. So on the occasion when he’d say to me, “Abilene, did I ever tell you ’bout the time …?” I’d get all quiet and listen real hard. Mostly he’d tell stories about Manifest, the town where he’d lived once upon a time.
+His words drew pictures of brightly painted storefronts and bustling townsfolk. Hearing Gideon tell about it was like sucking on butterscotch. Smooth and sweet. And when he’d go back to not saying much, I’d try recalling what it tasted like. Maybe that was how I found comfort just then, even with him being so far away. By remembering the flavor of his words. But mostly, I could taste the sadness in his voice when he told me I couldn’t stay with him for the summer while he worked a railroad job back in Iowa. Something had changed in him. It started the day I got a cut on my knee. It got bad and I got real sick with infection. The doctors said I was lucky to come out of it. But it was like Gideon had gotten a wound in him
 
-“This has numbers, too,” Kaori said.
+too. Only he didn’t come out of it. And it was painful enough to make him send me away.
+I reached into my satchel for the flour sack that held my few special things. A blue dress, two shiny dimes I’d earned collecting pop bottles, a letter from Gideon telling folks that I would be received by Pastor Howard at the Manifest depot, and my most
+special something, kept in a box lined with an old 1917 Manifest
+Herald newspaper: my daddy’s compass.
+In a gold case, it wore like a pocket watch, but inside was a compass showing every direction. Only problem was, a working compass always points north. This one, the arrow dangled and jiggled every which way. It wasn’t even that old. It had the compass maker’s name and the date it was made on the inside. St. Dizier,
+October 8, 1918. Gideon had always planned to get it fixed, but
+when I was leaving, he said he didn’t need it anyway, what with train tracks to guide him. Still, I liked imagining that the chain of that broken compass was long enough to stretch all the way back into his pocket, with him at one end and me at the other.
+Smoothing out the yellowed newspaper for the thousandth time, I scanned the page, hoping to find some bit of news about or insight into my daddy. But there was only the same old “Hogs and Cattle”
+report on one side and a “Hattie Mae’s News Auxiliary: Charter
+Edition” on the other, plus a couple of advertisements for Liberty Bonds and Billy Bump’s Hair Tonic. I didn’t know anything about Hattie Mae Harper, except what she wrote in her article, but I figured her newspaper column had protected Gideon’s compass for some time, and for that I felt a sense of gratitude. I carefully placed the newspaper back in the box and stored the box in the satchel, but held on to the compass. I guess I just needed to hold on to something.
+The conductor came into the car. “Manifest, next stop.”
+The seven-forty-five evening train was going to be right on time. Conductors only gave a few minutes’ notice, so I had to hurry. I shoved the compass into a side pocket of the satchel, then made my
 
-“But it doesn’t tell me straight out.”
-
-Kaori sighed. “Life can’t always be straight out, you know.”
-
-That was the first and last time Kaori had tried to teach Gen how to tell time, but she never stopped hounding her about one of life’s most important lessons: be punctual.
-
-One of the things Kaori appreciated most about Virgil was his punctuality. If he said he would be somewhere at eight thirteen and forty seconds, that’s what time he would arrive. Sometimes a little earlier, but never later. Not even by a minute.
-
-That’s why she knew something was wrong even before she looked at the clock and saw that he was fifteen minutes late.
-
-“It’s not like him to just not show up. He didn’t even give us a ‘Sorry, can’t make it,’” Kaori told Gen. They were standing side by side at the living-room window, looking through the blinds, waiting for Virgil’s skinny little body to come up the walk. “It doesn’t seem right that he wouldn’t text, especially because he knows how precious my time is. And I have that new client coming later.”
-
-“Maybe he forgot,” said Gen.
-
-“Doubtful,” said Kaori.
-
-“Maybe his mom or dad made him do something else and he didn’t have a chance to tell us.”
-
-That seemed more likely. Parents had a way of getting in the middle of things and screwing everything up. But still. . . .
-
-“It doesn’t seem right,” said Kaori. “He still would have texted or something.” She opened the front door and took a step outside. She crossed her arms and scanned the road with her dark, lined eyes. This proved the level of her concern. Kaori never stepped outside for clients. She always demanded the password. When you have powers of second sight, you have to protect yourself. Look what happened to the Salem witches.
-
-Gen stood next to her and crossed her arms, too. If their parents had been home, they would have told them to shut the door because they were letting all the air conditioning out and didn’t they know how much money they were wasting? But praise be to the ancestors, Mr. and Mrs. Tanaka had Saturday errands.
-
-“I have a bad feeling,” Kaori said. She tipped her head back and looked to the sky for signs. But it was a bright blue, cloudless day. Some would say it was a beautiful day, but Kaori thought rainstorms had much more personality.
-
-Gen’s eyes widened. “Maybe you should consult the crystals.”
-
-Oh, yes. The crystals. How could she have forgotten the crystals? But those were reserved for special occasions. She wasn’t sure if a client being twenty minutes late qualified.
-
-“Let’s text him again, just for good measure,” Kaori said. 
-
-They walked back inside and went to Kaori’s bedroom, where she had laid her cell phone just outside the door. She preferred not to use her phone in the chamber because she wasn’t sure how the world of the hereafter felt about such things. She’d explained cell phones and the internet to the spirits, so they were all up to speed, but you never know.
-
-Virgil didn’t answer the text, so Kaori called. It went straight to his generic voicemail. Kaori hung up, leaned against the wall in the hallway, and chewed her bottom lip.
-
-At eleven thirty she developed a pit of concern in her belly.
-
-At eleven thirty-five, she considered that something could be gravely wrong.
-
-By eleven forty, she was convinced that Virgil Salinas had met a terrible fate and it was time to consult the crystals.
-
-She kept them in a small velvet sling bag inside a locked box behind a stack of spell books under her bed. Gen was the only one who knew where the crystals were, and it was her greatest secret as far as both of them were concerned. Gen had to swear on her past, present, and future lives that she would never reveal the location of the crystals for as long as she lived.
-
-When she asked Kaori where the crystals came from, Kaori put her finger to her lips and said, “The keeper of secrets may ask no questions.”
-
-In truth, Kaori had gotten them at a garage sale. Mrs. Tanaka loved going to garage sales. She thought it was “absolutely wonderful” that Kaori wanted to go along because she called it “mother-daughter time,” but really Kaori just wanted to see what kind of treasures people were giving away for a nickel. That’s where she had found the crystals. 
-
-The woman selling them said you were supposed to use them to fill flower vases. “For decoration,” the lady said. But Kaori knew better. The secrets of the universe buried themselves in unusual and beautiful objects such as these, and only a select few could pull those secrets out. So she had bought the crystals for ten cents.
-
-Kaori locked her bedroom door as Gen wiggled under the bed for the box. Once she had it, she carried it gingerly to the rug. Kaori opened it, removed the bag, and shook out the crystals. Then they both leaned forward. A close inspection.
-
-“What do you see?” asked Gen quietly.
-
-Kaori studied each crystal without touching it. They were all different colors. Red, blue, clear, and pink. She scanned the clear plastic one with particular interest.
-
-“He didn’t forget the appointment,” she said. “He’s been detained somehow.”
-
-“Detayed? What’s that mean?”
-
-“Not detayed. Detained. Held up.”
-
-Gen gasped. “You mean with a gun?”
-
-“No, no. Not held up with a gun. Just . . . interrupted somehow.” She straightened her back and added, with some authority, “Something has prevented him from being here.”
-
-“But we know that already. Since he’s not here.”
-
-Kaori ignored her. Gen was a helpful assistant but could be insufferable. 
-
-“Something’s happened,” said Kaori. “Of this, I am certain.”
+way to the back of the last car. Being a paying customer this time, with a full-fledged ticket, I didn’t have to jump off, and I knew that the preacher would be waiting for me. But as anyone worth his salt knows, it’s best to get a look at a place before it gets a look at you. I’d worn my overalls just for the occasion. Besides, it wouldn’t be dark for another hour, so I’d have time to find my way around.
+At the last car, I waited, listening the way I’d been taught—wait till the clack of the train wheels slows to the rhythm of your heartbeat. The trouble is my heart speeds up when I’m looking at the ground rushing by. Finally, I saw a grassy spot and jumped. The ground came quick and hard, but I landed and rolled as the train lumbered on without a thank-you or goodbye.
+As I stood and brushed myself off, there was the sign not five feet in front of me. It was so weathered there was hardly a chip of blue paint to be found. And it looked to have been shot up so bad most of the words were gone. All that was left read MANIFEST: A TOWN WITH A PAST.
