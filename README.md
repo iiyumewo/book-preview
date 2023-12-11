@@ -1,59 +1,53 @@
-26
+27
 
-Interpretation of a Dream
+Valencia
 
 
 
-It was true that Kaori had studied dreams. Well, on the internet, at least. She believed the unconscious was a powerful force. Quite powerful indeed. And sometimes the brain needed dreams to get rid of all the things that made people afraid or anxious. To Kaori, the solution was clear: overcome your fears, and the nightmares go away.
+Okay, so maybe being alone isn’t always the best. It would be nice if I could go back to the days when I was part of a group. I mean, it’s good to have the same people to sit with at lunch every day instead of just sitting wherever. And sure, it’d be good to have some plans over the summer besides feeding Sacred or watching squirrels and birds’ nests. But it’s not like I’m afraid or anything.
 
-After hearing the details of Just Renee’s nightmare, she knew exactly what the problem was. It was clear as anything.
+Kaori says we should eat before we start our search-party strategy, so the three of us go into the kitchen. I realize I’m hungrier than I thought. It’s way past lunchtime already.
 
-When she was sure Just Renee was looking at her, she said, “You’re afraid of girls in blue dresses.” 
+Kaori pulls out a loaf of bread and some cold cuts to make sandwiches. I make a ham sandwich with mustard and nothing else. Gen makes bologna with about five pounds of mayo. Kaori has ham, lettuce, and tomato and cuts off all the crust. 
 
-Renee tilted her head skeptically, then shook it. They were sitting on the zodiac rug. The usual placements—Kaori and Gen on one side, client on the other.
+As we all munch on our sandwiches in the Tanakas’ kitchen—which is big and clean and smells like potatoes, with a nice table topped with tall, skinny candles—Kaori says that we need to start with the obvious places first.
 
-“I don’t think that’s it,” offered Gen.
+“The only obvious place is his house,” she says, her mouth half full. “We need to go over there and see if he’s home.”
 
-Kaori turned toward her sister. “Excuse me, but you’re not the expert here. And besides, how do you know my interpretation isn’t accurate?”
+“That sounds easy enough,” I say. I only used two slices of thin ham for my sandwich since I thought it was the polite thing to do, but now I wish I’d thrown on an extra. I taste mostly mustard and bread. But a sandwich is a sandwich when you’re hungry.
 
-Gen shrugged. “Just seems too . . . I don’t know . . . too obvious.”
+“Not as easy as you would think,” Kaori continues. She pauses. “You’re the one who has to go to the door and ask for him.”
 
-“Sometimes the simple answer is the real answer,” Kaori said. She turned back to Renee, who looked unconvinced. “But I’ll concentrate further, just in case I may be wrong.”
+I swallow. “Me? Why me? I don’t even know him.”
 
-She stressed the may part.
+She takes a swig of her drink and wipes her mouth with her sleeve while talking at the same time, so I miss the first part of her sentence. I catch the tail end: “. . . he might get in trouble.”
 
-She closed her eyes and pictured Renee standing in that field all by herself.
+Now I get it. If Virgil’s parents think he’s with Kaori and she shows up looking for him, he could get in trouble, especially if he’s off doing something he’s not supposed to be doing.
 
-“You’re scared,” said Kaori. “You’re afraid of being alone.”
+“Where does he live?” I ask.
 
-When she opened her eyes, Renee’s face was knotted like she’d just eaten something sour.
+Kaori motions in a random direction. “In a nice house on the other side of the woods. He goes to Boyd Middle.”
 
-“I’m not scared,” she said, like it was a bitter word she needed to spit out. “I like being alone. It’s easier that way.”
+“So do I,” I say. “I’m going into seventh.”
 
-Kaori and Gen exchanged looks. Kaori wasn’t used to being challenged by her clients. Then again, her only other client was Virgil.
+“So is Virgil!” Gen exclaims, a gob of mayo on her bottom lip.
 
-“Well,” said Kaori. She spoke carefully, pausing here and there to make sure Renee was getting all her important information. “I could be wrong. But it seems to me that you feel alone, or maybe you’re afraid of feeling alone. That’s why you get scared when you look around and everyone’s gone. Because it’s like you live in a bubble. Everyone looks at you like you’re invisible. And then one day . . . you are invisible. That would be scary to anyone.”
+“Are you sure you don’t know him?” asks Kaori.
 
-Gen nodded with vigor.
+“I don’t know,” I say. “I’m not good with names.” I motion toward my hearing aids to explain why. “Just faces.”
 
-Just Renee made a face that was a cross between a frown and a scowl.
+It’s hard for me to make out what Gen says next because her mouth is full of food, but I gather that she’s telling me what Virgil’s face looks like.
 
-“I like being alone,” she insisted. She crossed her arms.
+Brown.
 
-“Oh,” Kaori said.
+Skinny.
 
-“Alone is good. It’s less trouble.”
+Sad.
 
-“Maybe I’m way off. Probably because I’m worried about Virgil. I can’t seem to concentrate.”
+I wonder how Gen would describe my face to someone else.
 
-Gen nodded again. “It’s true,” she said. “She stared at those lines for a really long time before you got here.” She pointed to the star chart.
+I wouldn’t want to be described as sad. But maybe I am.
 
-Renee glanced at the chart, then looked back at the sisters. Kaori wanted to explain that they weren’t merely lines, but she figured it was best to leave well enough alone, as her father liked to say.
+Not right now, though.
 
-“Well,” Renee said. She uncrossed her arms. “I can help you look for him. If you want.”
-
-Kaori eyed her new client curiously. Renee was stubborn, but with a quick-fizzling temper. Interesting. She wondered what sign she was. Leo? Aries?
-
-“Hey, what sign are you?” Kaori asked.
-
-But Renee was busy standing up, so she didn’t realize Kaori was talking to her. 
+Right now I’m just a girl eating a sandwich, waiting to see what happens next.
