@@ -1,83 +1,137 @@
-24
+25
 
-Valencia
+The Girl Who Didn’t Know Her Destiny
 
 
 
-I’ve never been to a psychic’s house before, but I guess I expected something different, like a big glowing sign that said PALM READING or FORTUNES HERE. But instead the address led me to a regular house. I’m not sure what to think of this. Is this a good sign or a bad sign? Does this mean Kaori is or is not a crazy person?
+Virgil covered his ears. He pressed his palms against them until it hurt. His heartbeat moved from his chest to his head, and yet the rustling was still there. Louder somehow. The sound of ruffled feathers managed to soar above everything—the THA-thump-THA-thump-THA-thumping of his heart and the huff-huff-huff through his nostrils—but he refused to open his eyes. He couldn’t anyway, because they were glued shut. His eyeballs ached. The apples of his cheeks, too. His whole face had been balled into a knot and tightened.
 
-There’s only one way to find out.
+No, he couldn’t look. He wouldn’t.
 
-I walk up and ring the doorbell. I can tell that it works by the way it vibrates under my fingertip. You’d be surprised how many people have broken doorbells. I stare at the door with my heart beating, but I don’t have to wait long before it opens, and a little girl is standing there. She looks like she’s in first grade or something. She has a pink jump rope slung over her shoulder. She’s a lot younger than I thought, but at least she’s not a serial killer. No wonder I couldn’t find her online anywhere. She’s probably too young to even use the computer.
+The wings moved again. Were they closer? They felt closer.
 
-“Password?” she says.
+Was that a feather on his cheek, or—?
 
-“Venus rises in the west.”
+He flinched, the same way he did when teachers called on him even though he hadn’t raised his hand. “Can you tell us the answer, Virgil?” they’d ask, looking right at him.
 
-The girl eyes my hearing aids. “What’re those?”
+He shook his head. No, no, no.
 
-“Hearing aids,” I say.
+“What is the solution—does anyone know? Virgil?”
 
-I wait for her reaction. 
+One time, in Ms. Murray’s class, he had said—in a low, low voice—exactly what he was thinking. “But I didn’t raise my hand.”
 
-Sometimes people get scared when they find out you can’t hear. They don’t want to talk to you, or they don’t know where to look. Their eyes dart all around like they’re searching for an invisible portal to take them somewhere else.
+“Sometimes life calls on you even when you don’t raise your hand,” she’d said.
 
-But this girl just says, “You talk funny.”
+The wings were bigger now, he could tell. They were spreading, tips touching opposite sides of the well, taking up all the space that he and Gulliver couldn’t manage to fill.
 
-I say, “I know. It’s because I’m deaf.”
+Pah. 
 
-“Oh,” she says, and opens the door wide.
+When would he feel the talons?
 
-The house is very neat and clean, and it smells like incense. Curls of smoke drift out of a room down the hall. This is where the girl leads me.
+“Open your eyes,” a voice said. “That’s the solution.”
 
-Dear Saint Rene, if there’s a crazy psycho killer in that smoky room, please protect me. Amen.
+The voice wasn’t his. It was coming from inside the well, through his hands and heart and failed breaths. It was embodied, as if from beyond. It was a girl’s voice, one he’d never heard before.
 
-Turns out, there’s no crazy psycho killer, just another girl, about my age. I know right away this is Kaori. She’s standing in front of a huge star chart with her hands on her hips. She turns when I walk in. Her face looks distracted. Her eyebrows are doing this slight wrinkle in the middle, which is what happens when you’re worried. You know how I said you can tell a lot about a person by their eyes? Well, eyebrows have even more to say. 
+Virgil opened his mouth—dry like parched grass—to say, “Who said that?” But he wasn’t sure he’d actually said anything until she replied.
 
-“Are you Just Renee?” she asks.
+“Me.”
 
-At first I’m confused, but then I remember that I gave her a fake, just-in-case name.
+The voice breezed through the well like steam drifting from a cup of hot chocolate.
 
-“Yes.”
+Virgil pushed himself back against the wall as far as he could.
 
-The little girl walks up to her sister so they’re both facing me.
+“I don’t want to open my eyes,” he said. This time he was sure he’d spoken aloud.
 
-“She has hearing aids and she talks funny,” the little girl says.
+“The more scared you are, the bigger Pah gets,” the girl said. “Besides, he’s not as bad as you think. Most things aren’t.”
 
-I tell them about the how-tos and expect them to look nervous or uncomfortable, but neither of them does. Kaori seems to have other things on her mind.
+She sounded so calm that Virgil almost believed her. She reminded him of Lola, even though she was just a girl. But where had she come from? He wasn’t certain of much, especially not now—but he knew there hadn’t been a girl in the well when he climbed down.
 
-“I’m Kaori,” she says. “I apologize for being a little distracted. I have a client who was supposed to be here two hours ago, and I’m worried. You didn’t see him, did you?”
+“I don’t believe in ghosts,” he said, even though that wasn’t true at all.
 
-“What’s he look like?”
+“Me neither,” the girl replied.
 
-“He’s small, kinda scrawny, with brown skin and dark hair,” Kaori says. She looks right at me and talks slowly, just like I asked. “He looks scared all the time, and he carries a purple backpack. He’s eleven.”
+He realized now that his breathing had calmed and he couldn’t hear Pah anymore, but he still didn’t want to open his eyes. What if Pah was staring back at him, widening his enormous beak?
 
-“His name is Virgil,” the little girl adds. “My name is Gen.”
+“He won’t be,” said the girl. “Trust me.”
 
-“Small, scrawny, with dark hair?”
+How did she know what he was thinking?
 
-Gen and Kaori nod.
+“I hear by seeing,” she replied.
 
-I know I didn’t see any boy like that this morning, but something about the description feels familiar.
+Virgil unscrewed his face. His hands were making his ears sweat, but he didn’t dare uncover them. He opened his eyes instead. Slowly. Slowly.
 
-“And a purple backpack,” Gen says. “And looks scared all the time.”
+Darkness.
 
-I feel like I know this person. 
+More darkness.
 
-The name Virgil doesn’t mean anything to me, but that’s because it’s hard for me to remember names. I’m much better with faces.
+But no pointed beak. No feathers. No talons.
 
-I didn’t see anyone on my way to Kaori’s, though. That’s for sure. 
+No Pah.
 
-“I haven’t seen him,” I say.
+The well was just as it had been.
 
-She frowns. “I’m sure he’ll turn up.” After a moment she forces a smile and says, “Let’s talk about your dreams. Are they good or bad?”
+His heartbeat slowed—still racing and ready for takeoff, but no longer desperate to crash through his chest.
 
-“If they were good, I wouldn’t be here,” I say.
+“See?” the girl said proudly.
 
-“Excellent point,” Kaori says. She points to a circle rug and tells me to sit down. I do. 
+He moved his hands to his sides—slowly, slowly—and darted his eyes around in the dark.
 
-“Now,” she says, sitting across from me, next to Gen. “Let us begin.”
+“Where are you?” he asked. It came out as a whisper.
 
-I can’t help but notice that her worried look hasn’t disappeared.
+“I’m all around. Can’t you tell?”
 
-Not completely.
+Yes, he could tell. Her voice came from everywhere, like the well itself was speaking.
+
+“Wells can’t talk,” said Virgil.
+
+He placed his palm on one of the stones without moving any other part of his body.
+
+It felt like the well was breathing.
+
+“I can see that you’re afraid, Bayani, but you needn’t be.”
+
+“How? How can you see?” 
+
+“I see by listening.”
+
+“My name isn’t Bayani.”
+
+“It is to me,” the girl said.
+
+“Who are you?”
+
+“Ruby San Salvador.”
+
+The name sounded vaguely familiar. 
+
+“The girl who didn’t know her destiny,” she explained. “Remember?”
+
+Yes, he remembered. From Lola’s story.
+
+“What are you doing here?” Virgil’s voice was small.
+
+Pah had disappeared.
+
+For now.
+
+“Fulfilling my destiny,” said Ruby.
+
+“Your destiny is to live in a well?”
+
+“No. My destiny is to help people in trouble.”
+
+Virgil clutched his backpack.
+
+“Can you move the cover and help me up the ladder?”
+
+“Of course not. You need arms to move things.”
+
+“Oh,” said Virgil.
+
+Silence filled the well.
+
+Gulliver squeaked.
+
+“I guess it’s hopeless,” whispered Virgil. 
+
+“Oh, Bayani,” Ruby replied. “Nothing is ever hopeless.”
