@@ -1,85 +1,83 @@
-23
+24
 
-The Issue of Time
+Valencia
 
 
 
-Kaori Tanaka’s first word was “nomad,” even though she had no nomadic blood. Not as far as she could tell, judging by her parents. But one thing she did inherit from her parents—specifically, her mother—was a keen sense of time. One of her first orders of business as the older sister was to teach Gen how to tell time. Unfortunately, Gen didn’t have much of a knack for it. 
+I’ve never been to a psychic’s house before, but I guess I expected something different, like a big glowing sign that said PALM READING or FORTUNES HERE. But instead the address led me to a regular house. I’m not sure what to think of this. Is this a good sign or a bad sign? Does this mean Kaori is or is not a crazy person?
 
-“What time is it?” Kaori had asked one afternoon a few years before, when Gen was just starting to learn. Kaori had drawn a clock on a sheet of paper. Anyone could see it was three thirty—the peak of the witching hour—but Gen stared at the clock blankly. Instead of giving the right time, Gen sat down with her legs stretched in front of her and grabbed her toes. She’d always been a wiggly girl.
+There’s only one way to find out.
 
-“I don’t know,” Gen had said. “But who cares? All I have to do is look at Mom’s cell phone or the microwave, and it will tell me right away, with the numbers.”
+I walk up and ring the doorbell. I can tell that it works by the way it vibrates under my fingertip. You’d be surprised how many people have broken doorbells. I stare at the door with my heart beating, but I don’t have to wait long before it opens, and a little girl is standing there. She looks like she’s in first grade or something. She has a pink jump rope slung over her shoulder. She’s a lot younger than I thought, but at least she’s not a serial killer. No wonder I couldn’t find her online anywhere. She’s probably too young to even use the computer.
 
-“This has numbers, too,” Kaori said.
+“Password?” she says.
 
-“But it doesn’t tell me straight out.”
+“Venus rises in the west.”
 
-Kaori sighed. “Life can’t always be straight out, you know.”
+The girl eyes my hearing aids. “What’re those?”
 
-That was the first and last time Kaori had tried to teach Gen how to tell time, but she never stopped hounding her about one of life’s most important lessons: be punctual.
+“Hearing aids,” I say.
 
-One of the things Kaori appreciated most about Virgil was his punctuality. If he said he would be somewhere at eight thirteen and forty seconds, that’s what time he would arrive. Sometimes a little earlier, but never later. Not even by a minute.
+I wait for her reaction. 
 
-That’s why she knew something was wrong even before she looked at the clock and saw that he was fifteen minutes late.
+Sometimes people get scared when they find out you can’t hear. They don’t want to talk to you, or they don’t know where to look. Their eyes dart all around like they’re searching for an invisible portal to take them somewhere else.
 
-“It’s not like him to just not show up. He didn’t even give us a ‘Sorry, can’t make it,’” Kaori told Gen. They were standing side by side at the living-room window, looking through the blinds, waiting for Virgil’s skinny little body to come up the walk. “It doesn’t seem right that he wouldn’t text, especially because he knows how precious my time is. And I have that new client coming later.”
+But this girl just says, “You talk funny.”
 
-“Maybe he forgot,” said Gen.
+I say, “I know. It’s because I’m deaf.”
 
-“Doubtful,” said Kaori.
+“Oh,” she says, and opens the door wide.
 
-“Maybe his mom or dad made him do something else and he didn’t have a chance to tell us.”
+The house is very neat and clean, and it smells like incense. Curls of smoke drift out of a room down the hall. This is where the girl leads me.
 
-That seemed more likely. Parents had a way of getting in the middle of things and screwing everything up. But still. . . .
+Dear Saint Rene, if there’s a crazy psycho killer in that smoky room, please protect me. Amen.
 
-“It doesn’t seem right,” said Kaori. “He still would have texted or something.” She opened the front door and took a step outside. She crossed her arms and scanned the road with her dark, lined eyes. This proved the level of her concern. Kaori never stepped outside for clients. She always demanded the password. When you have powers of second sight, you have to protect yourself. Look what happened to the Salem witches.
+Turns out, there’s no crazy psycho killer, just another girl, about my age. I know right away this is Kaori. She’s standing in front of a huge star chart with her hands on her hips. She turns when I walk in. Her face looks distracted. Her eyebrows are doing this slight wrinkle in the middle, which is what happens when you’re worried. You know how I said you can tell a lot about a person by their eyes? Well, eyebrows have even more to say. 
 
-Gen stood next to her and crossed her arms, too. If their parents had been home, they would have told them to shut the door because they were letting all the air conditioning out and didn’t they know how much money they were wasting? But praise be to the ancestors, Mr. and Mrs. Tanaka had Saturday errands.
+“Are you Just Renee?” she asks.
 
-“I have a bad feeling,” Kaori said. She tipped her head back and looked to the sky for signs. But it was a bright blue, cloudless day. Some would say it was a beautiful day, but Kaori thought rainstorms had much more personality.
+At first I’m confused, but then I remember that I gave her a fake, just-in-case name.
 
-Gen’s eyes widened. “Maybe you should consult the crystals.”
+“Yes.”
 
-Oh, yes. The crystals. How could she have forgotten the crystals? But those were reserved for special occasions. She wasn’t sure if a client being twenty minutes late qualified.
+The little girl walks up to her sister so they’re both facing me.
 
-“Let’s text him again, just for good measure,” Kaori said. 
+“She has hearing aids and she talks funny,” the little girl says.
 
-They walked back inside and went to Kaori’s bedroom, where she had laid her cell phone just outside the door. She preferred not to use her phone in the chamber because she wasn’t sure how the world of the hereafter felt about such things. She’d explained cell phones and the internet to the spirits, so they were all up to speed, but you never know.
+I tell them about the how-tos and expect them to look nervous or uncomfortable, but neither of them does. Kaori seems to have other things on her mind.
 
-Virgil didn’t answer the text, so Kaori called. It went straight to his generic voicemail. Kaori hung up, leaned against the wall in the hallway, and chewed her bottom lip.
+“I’m Kaori,” she says. “I apologize for being a little distracted. I have a client who was supposed to be here two hours ago, and I’m worried. You didn’t see him, did you?”
 
-At eleven thirty she developed a pit of concern in her belly.
+“What’s he look like?”
 
-At eleven thirty-five, she considered that something could be gravely wrong.
+“He’s small, kinda scrawny, with brown skin and dark hair,” Kaori says. She looks right at me and talks slowly, just like I asked. “He looks scared all the time, and he carries a purple backpack. He’s eleven.”
 
-By eleven forty, she was convinced that Virgil Salinas had met a terrible fate and it was time to consult the crystals.
+“His name is Virgil,” the little girl adds. “My name is Gen.”
 
-She kept them in a small velvet sling bag inside a locked box behind a stack of spell books under her bed. Gen was the only one who knew where the crystals were, and it was her greatest secret as far as both of them were concerned. Gen had to swear on her past, present, and future lives that she would never reveal the location of the crystals for as long as she lived.
+“Small, scrawny, with dark hair?”
 
-When she asked Kaori where the crystals came from, Kaori put her finger to her lips and said, “The keeper of secrets may ask no questions.”
+Gen and Kaori nod.
 
-In truth, Kaori had gotten them at a garage sale. Mrs. Tanaka loved going to garage sales. She thought it was “absolutely wonderful” that Kaori wanted to go along because she called it “mother-daughter time,” but really Kaori just wanted to see what kind of treasures people were giving away for a nickel. That’s where she had found the crystals. 
+I know I didn’t see any boy like that this morning, but something about the description feels familiar.
 
-The woman selling them said you were supposed to use them to fill flower vases. “For decoration,” the lady said. But Kaori knew better. The secrets of the universe buried themselves in unusual and beautiful objects such as these, and only a select few could pull those secrets out. So she had bought the crystals for ten cents.
+“And a purple backpack,” Gen says. “And looks scared all the time.”
 
-Kaori locked her bedroom door as Gen wiggled under the bed for the box. Once she had it, she carried it gingerly to the rug. Kaori opened it, removed the bag, and shook out the crystals. Then they both leaned forward. A close inspection.
+I feel like I know this person. 
 
-“What do you see?” asked Gen quietly.
+The name Virgil doesn’t mean anything to me, but that’s because it’s hard for me to remember names. I’m much better with faces.
 
-Kaori studied each crystal without touching it. They were all different colors. Red, blue, clear, and pink. She scanned the clear plastic one with particular interest.
+I didn’t see anyone on my way to Kaori’s, though. That’s for sure. 
 
-“He didn’t forget the appointment,” she said. “He’s been detained somehow.”
+“I haven’t seen him,” I say.
 
-“Detayed? What’s that mean?”
+She frowns. “I’m sure he’ll turn up.” After a moment she forces a smile and says, “Let’s talk about your dreams. Are they good or bad?”
 
-“Not detayed. Detained. Held up.”
+“If they were good, I wouldn’t be here,” I say.
 
-Gen gasped. “You mean with a gun?”
+“Excellent point,” Kaori says. She points to a circle rug and tells me to sit down. I do. 
 
-“No, no. Not held up with a gun. Just . . . interrupted somehow.” She straightened her back and added, with some authority, “Something has prevented him from being here.”
+“Now,” she says, sitting across from me, next to Gen. “Let us begin.”
 
-“But we know that already. Since he’s not here.”
+I can’t help but notice that her worried look hasn’t disappeared.
 
-Kaori ignored her. Gen was a helpful assistant but could be insufferable. 
-
-“Something’s happened,” said Kaori. “Of this, I am certain.”
+Not completely.
