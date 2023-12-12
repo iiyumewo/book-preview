@@ -1,153 +1,133 @@
-28
+29
 
-Bali
+Valencia
 
 
 
-Virgil tried once again to shove the toe of his sneaker between two of the heavy stones of the well, but they were so densely packed that he couldn’t gain enough footing to step up and reach the ladder. He also tried the ledge again, but it wasn’t tall enough. Neither was he. He jumped just in case he’d suddenly sprouted ten inches, but his fingertips never brushed the bottom rung. He wasn’t even sure where the ladder was, anyway. It was so dark.
+Forty-eight hours ago, I was just a regular girl observing wildlife. Now I’m walking with a psychic to the house of a boy I don’t know so I can find out if he’s missing or not. Life is funny, isn’t it?
 
-He sat, exhausted, and fed Gulliver a dandelion.
+Virgil lives in a nice neighborhood, just like Kaori said. The houses are twice the size of the houses on my street. When I mention it to Kaori, she just says, “Yeah, yeah, his dad’s a doctor.” Then she waves it away like it’s the least important thing to be thinking about right now. And maybe she’s right. I was just making an observation.
 
-“I wonder how long it will take for someone to start searching for me,” Virgil said. He thought about the Stone Boy.
+To be honest, something about the big houses intimidates me, and I’m already nervous.
 
-“How do you know someone hasn’t started already?” said Ruby.
+I’m not shy or anything, but I didn’t really feel like knocking on the front door of a house belonging to someone I didn’t know. But Kaori had explained once again that if Virgil’s parents or Lola thought he was with Kaori when he was really off doing something else—something he shouldn’t be doing—then he could get in big trouble.
 
-“I hope they show up before Pah comes back.”
+“He probably isn’t,” Kaori had said as we made our way to the boy’s neighborhood. “He’s not exactly the type who goes off doing something he shouldn’t be doing, just like he’s not the type to miss an appointment. But you never know. People are an enigma.”
 
-“Why don’t you rest instead of worrying about Pah? He’s not here now. That’s what matters.”
+So here I am, and Virgil’s house is one block away. Kaori stops me, and she and Gen give me very serious looks, like I’m a spy going on a secret mission.
 
-“I can’t rest. It’s too quiet,” said Virgil. 
+“Here’s what you do,” Kaori says. “Knock on the door and ask if Virgil’s home.”
 
-“Silence is good sometimes,” Ruby replied. “That’s when you’re able to hear best.”
+“Thanks for spelling it out for me,” I say.
 
-“Hear what?”
+When Gen giggles behind her hand, Kaori shoots her a look. 
 
-“Your thoughts, Bayani.”
+“I’m serious,” says Kaori. “His Lola is very perceptive. I think she’s one of us.” She puts her hand on her chest to show me that “us” meant psychics. “If he’s not home, just say thanks and say you’ll stop back later. Then we’ll know what’s going on one way or another.”
 
-“That’s just it. I don’t want to have any thoughts, because then I’ll have to think about how I’m trapped down here with no way out.”
+“And what if he is home?” I could already feel the heat of embarrassment. Maybe I wouldn’t be so nervous if it was a girl’s house, but the fact that it’s a boy in a big fancy neighborhood makes my stomach flip around to the point of nausea. I don’t exactly talk to boys on a regular basis. And I definitely don’t go to their houses.
 
-Ruby sighed. “That’s the problem. People don’t want to listen to their thoughts, so they fill the world with noise.”
+“Then tell him to come outside and meet us,” says Kaori, glancing over my shoulder. “We’ll wait right here.”
 
-“I wouldn’t mind the quiet if I were someplace else.”
+Gen taps my arm and smiles up at me. “You don’t have to worry that he’ll freak out or anything,” she says. “Virgil’s really nice. And he’s shy, like I said before. He even has a pet rat.”
 
-“Like where?”
+She pulls at the ends of her jump rope and shakes it loose. It splays across the hot cement and dangles near the toes of her sneakers. 
 
-Virgil brought his backpack closer. “Bali.”
+“Really?” I say. This is an interesting development. Most people don’t like rats, but they make good pets. Rats are really smart and curious. And they’re always up for fun and adventure. It would be nice to have a pet rat. But I’d never ask my parents for one. I could just imagine the looks on their faces.
 
-“What’s Bali?”
+Now Kaori is tapping my shoulder so I’ll know to look at her (she’s really good at the how-tos), and at the same time giving Gen a little shove. “It’s not a rat,” she says. “It’s a guinea pig.”
 
-“I don’t know,” said Virgil. “It’s a place people always want to go.” His parents talked about it often. They even had brochures.
+“Oh, I love guinea pigs!” I say. “I had one when I was really little, but it died. Her name was Lilliput.”
 
-“Why? What’s it look like?”
+I’d almost forgotten about Lilliput. She had very long hair and it was all different colors: light brown, dark brown, and black, mixed together. I can’t remember where we got her because I was so little, but I remember feeding her hay and watching her drink out of the bottle in her cage. She died while I was at preschool. When I came home, my dad had already buried her in the backyard. I cried because I didn’t get to say good-bye.
 
-“Magical, I think. Otherwise, why would so many people want to go there?”
+“Lilliput! That’s a cute name,” says Gen, as she positions her rope for jumping.
 
-Virgil imagined a bright purple sky with thick blue clouds. Any time it rained in Bali, the clouds cracked open and fat drops of laughing gas fell down on everyone. No one could stop laughing in Bali. They drank out of golden goblets and laughed and laughed. They didn’t care if people were in their shells or not. And the sun shone all the time, so the whole place was bathed in light. Anything the light touched belonged to the sun gods and the sun gods never allowed any evil to pass through Bali’s borders. There were soldiers stationed at every entrance just in case, but no one dared to even step close. The sun gods’ only mortal enemies were the One Hundred Kings of Darkness. But the kings had been banished to the core of the earth, where they’d been asleep for five thousand years. 
+Lilliput is the name of an island from a book called Gulliver’s Travels. In the book, the explorer, Lemuel Gulliver, travels to all these different lands after a shipwreck. The first place is Lilliput, an island where all the people are less than six inches tall. I liked the story, but I liked the name more: Lilliput. It sounded just like a place where little tiny people would live.
 
-The One Hundred Kings of Darkness couldn’t sleep forever. Everyone knew that. But no one knew when they’d wake up. So the sun gods appointed one special warrior to defeat them. The warrior spent years in training so he’d be prepared if the kings ever opened their eyes—all two hundred of them.
+I’m just about to tell all this to Gen and ask what Virgil’s guinea pig is named when Kaori starts waving toward the house behind me.
 
-“It’s you, Bayani!” said Ruby. “You’re the sun god warrior.”
+“Hurry up, hurry up,” she says. “We need to find out what’s going on.”
 
-“I’m no warrior,” said Virgil. He leaned his head back against the stone and breathed in the mildew. He didn’t notice it as much now. “My brothers, maybe. But not me.”
+“All right, all right,” I say. I turn and walk toward the house. I try to walk all nonchalant-like so they don’t see how nervous I am.
 
-“Pshah!”
+There aren’t any cars in the driveway. Maybe no one’s home.
 
-“What do you mean, pshah? They’re strong and everything.”
+I walk up the stone pathway. It’s not like the house is a mansion or anything, but it’s big. Two stories tall, with a garage that fits three cars. There’s even a knocker on the front door shaped like a horseshoe. I lift it up, knock three times, and wait. I play with the straps of my bag. After about five seconds, I decide no one’s home. In one way it’s a relief, but then again, it would be better if he was home, because that would mean that Kaori’s friend is safe and sound. 
 
-“What’s that got to do with anything?”
+Then the door opens. I know right away it’s his Lola—which Kaori told me means “grandmother”—because she looks about a hundred years old. She’s small, shorter than me, and really skinny. She doesn’t smile. She’s not exactly mean looking, but not exactly friendly, either. She glances at my hearing aids, but only for a second.
 
-“Well, I’m just saying. They aren’t scrawny and weak like me.”
+“Um,” I say. “Is Virgil home?”
 
-“Weakness has nothing to do with how much you weigh.” Ruby hesitated. “Sure, maybe they can play sports and lift things, but that doesn’t mean they’re strong. There are many different ways to be strong. And being a warrior has nothing to do with size. Surely there have been small warriors before.”
+She lifts her chin like she didn’t hear me correctly. Her hand is still on the doorknob.
 
-Virgil thought of Paulito and the Jungle Dragon, which had been one of Lola’s favorite stories before she switched to tales about crocodiles and rocks eating children. The story of Paulito had a much happier ending. 
+“Virgil?” she says.
 
-“Tell me about him,” said Ruby.
+For a second I’m worried I didn’t say his name correctly. Maybe his name isn’t Virgil after all. Maybe I put the pieces of the puzzle together incorrectly.
 
-“How do you know what I’m thinking?”
+“Yes?” I say. It comes out like a question.
 
-“I was listening.”
+“No, Virgil isn’t home. He went out this morning. What is your name?”
 
-“But I didn’t say anything.”
+My chest and neck feel hot.
 
-“What difference does that make?” Ruby said. “Tell me the story. I love stories.”
+“My name?” I reply stupidly.
 
-Virgil didn’t consider himself much of a storyteller, but he gathered all the pieces of Paulito together in his head and began the best way he knew how—at the beginning.
+“Yes,” says Lola. “So I can tell him you came.”
 
-“Paulito was only one inch tall, but he wanted to be king. Not because he was greedy or anything like that, but because his village wouldn’t stop arguing and fighting over petty nonsense.” Virgil remembered Lola using that phrase specifically, “petty nonsense,” because he had had to ask her what it meant. 
+“Oh.” I clear my throat. “My name is . . . um, Valencia.”
 
-“When your house is on fire and you straighten the pillows before you leave,” Lola had said.
+“Um Valencia?” she says. I’m not sure if she’s teasing me or being mean. It’s hard to tell at first, but then her eyes soften and she smiles. “I was expecting you.”
 
-“Everyone laughed at him. They said a man who was one inch tall could never rule a village. They got so worked up that they started arguing again.”
+“You were?”
 
-Gulliver chirped, so Virgil fed him a dandelion. He didn’t feed him more than one at a time, though. Gulliver had to ration his food. Virgil wondered if he would have to eat dandelions, too. What would happen if he did? Would he die of dandelion poisoning? And what about water? How long could he go without water?
+“Well, I was expecting something.”
 
-Virgil put his hand on his throat. Suddenly he was very thirsty.
+I expected her to say something normal, like “I’ll tell him you stopped by,” so I don’t know how to respond.
 
-“Then what happened, Bayani?” Ruby urged. “I hope that’s not the end.”
+“Your mother blessed you with a good name,” she continues. “Valencia Cathedral is one of the most important cathedrals in the world. It’s in Spain.”
 
-“Oh. Sorry.” Virgil dropped his hand and scratched behind Gulliver’s ears. “I’m not very good at telling stories. Not like Lola.”
+“Oh. I didn’t know that.”
 
-Thinking of Lola made Virgil sick and nauseous, like there were a million tears deep inside of him that wanted to come out. What would she be doing now? Folding the laundry? Ironing shirts? Pulling weeds from the garden? Fussing at his mother for buying too many bananas? Whatever it was, she probably wasn’t thinking that one of her stories had finally come true—a well had eaten her grandson.
+“Maybe your mother does.”
 
-“Just try,” Ruby said. 
+“I doubt it.”
 
-Virgil swallowed. “While they argued, he gathered grains of sand from the beach. He could only carry a handful at a time. The village was so busy arguing that they didn’t notice what he was doing. Then big ships came and tried to invade. But they couldn’t get in because Paulito had built a fortress, one handful at a time.”
+“Hmm.” Lola looks like she’s considering this. “You should tell her. She might like to know that she picked a good, strong name.”
 
-Ruby waited. “And?”
+“I think she knows already,” I say. “She’s not the type to question her choices.”
 
-“And they crowned him king of the island. He was the best king they ever had.”
+Lola laughs. Her whole face crinkles up when she does. She kind of reminds me of a cackling witch, but not in a bad way.
 
-Those one million pushed-down tears crept upward.
+“I like your mother!” says Lola.
 
-He missed his Lola.
+That makes me smile, although I’m not sure why, because I consider my mother to be the biggest pain in the world.
 
-“I’m no warrior. I’m no Paulito,” he said. “Paulito wouldn’t hide from the Bull. Paulito was brave. He wouldn’t be scared.”
+“Does Virgilio have your phone number?” Lola says. “I will tell him to type you a message when he gets home.”
 
-“It’s not being brave if you aren’t scared.”
+She motions her hands like she’s tapping on a cell phone, and I realize she’s talking about texting.
 
-“Yes, but I don’t do anything. I don’t fight at all.”
+I could have just said yes, but instead I blurt out “No,” which is the truth, and next thing you know, she’s waving me inside so she can write it down. I look toward Kaori and Gen and shrug. They’re too far away for me to see their faces. Gen is jump roping. She’s pretty fast, too.
 
-“There are many ways to fight. Maybe you just haven’t been ready. But you’ll be ready next time.” 
+I don’t realize how hot it was outside until I step into Virgil’s house and feel the cool buzz of the air conditioning. Lola walks ahead of me, toward a big kitchen. I close the door and follow. She starts rummaging through a drawer. Her mouth is moving, but I can’t tell what she’s saying because she’s looking at the drawer instead of me. It’s funny how people talk to things like drawers instead of the person right across from them. I don’t want to bend down and stare at her face, because that would just be weird. So instead I turn and look casually at this big bookshelf against the wall. I don’t bother with the books though. Instead I stare right at a framed family picture. There are six people in the photo. Four of them are smiling—big, shiny, perfect smiles. Two of them aren’t. One is Lola. She has a faint scowl on her face, like she’s ready to get the picture taking over with. The other is a boy. He’s not scowling, exactly. It looks like he’s trying to make an effort to fake smile, but he just couldn’t get up the energy. I know right away this is Virgil. And I know right away why Kaori’s description sounded so familiar. 
 
-“I don’t want a next time.”
+I know him.
 
-“My dear Bayani,” said Ruby. “There is always a next time.”
+I search my memory for his face, and it comes to me right away.
 
-Bayani meant hero. Virgil remembered now. He sat in the silence of the deep, dark well, suddenly remembering things. One thing he remembered was the day his parents and his math teacher told him he’d be going to the resource room every Thursday because of his multiplication tables.
+He’s in the resource room every Thursday, just like me. We never talked or anything, but he seemed nice. Quiet.
 
-Virgil’s mind had wandered that day as he sat in the uncomfortable chair across from Mr. Linton with his parents on either side of him. Instead of listening to the details of what made him “special,” he heard “multiplication tables” and began to imagine a never-ending assembly line of tables—like the kind you get at Ikea—cloning themselves and stacking up, up, up. And he pictured himself standing near the bottom one, leaning back and trying to see the top of the Ikea mountain. Only he couldn’t, because he was special.
+When Lola taps me on the shoulder, I jump. Who knew I was so jittery?
 
-Mr. Linton explained to Virgil and his parents that going to the resource room meant Virgil would get more individual attention. It didn’t mean there was anything wrong with him, Mr. Linton hastened to add.
+She’s holding a pen and scrap of paper and shaking it under my nose.
 
-At the time, Virgil had thought, That’s not true. There is something wrong—I can’t do my multiplication tables. There’s a right way to do them, and there’s a wrong way. And if I was doing them the right way, I wouldn’t be here.
+“Did you hear me?” she says. She’s asking me to write my name and number on the paper.
 
-But he kept his mouth shut.
+“No, I’m sorry.” I motion toward my hearing aids.
 
-He didn’t mind going to the resource room, anyway. It’s not like he was having a blast with Mr. Linton. So if he needed more individual time, that was fine with him. He was pretty sure no one would notice he was gone, anyhow. 
+“There was a girl in my village who was deaf,” Lola says after I give the paper back to her with my information. Virgil is going to be really confused when he gets it, but oh, well. What’s done is done. “People talked around her like she wasn’t there because they didn’t think she was paying attention. They figure, no use hiding our secrets if she can’t hear us. But she heard everything.” Lola leaned forward and tapped the folded corner of her right eye. “She heard with her eyes.”
 
-Besides, it turned out to be the best day of Virgil’s entire school year, because that’s where he saw Valencia for the first time.
+I wonder what kind of secrets that girl knew.
 
-She was wearing a purple shirt. Her hair was in two perfect braids. The hems of her jeans were smudged with dirt, and she carried a journal under her arm that Virgil was desperate to read. Sometimes he’d wonder: if she accidentally left it behind on the desk, would he sneak a peek? Or would he be a good person and guard it so no one else could? He liked to think it was the second one. But he really longed to know what she wrote and sketched about. It made Virgil want his own journal. Maybe he had things to say and he just didn’t know it yet.
+“I hear with my eyes, too,” I say.
 
-“I wish I had a journal now,” he said to the darkness. “I would write a good-bye letter to my family. Not that they would ever find it.”
-
-“You don’t need paper to write a letter,” said Ruby. “You can write letters in your head.”
-
-“What do you mean?”
-
-“You close your eyes and mouth and send your thoughts through the universe.”
-
-“But how can my family get a thought?”
-
-“They’ll feel it, even if they don’t know it,” said Ruby. “Don’t you ever just get a feeling sometimes?”
-
-Yes. Like sometimes at school, he could feel the Bull nearby, even though he couldn’t see him. Same with Valencia.
-
-“That’s the universe sending you a letter,” said Ruby.
-
-He thought of Lola and how she always seemed to know what he was feeling. Maybe—somehow—she would feel that he was in trouble now.
-
-“I think Lola gets lots of letters,” he said.
-
-“We all do,” Ruby replied. “Some of us are just better at opening them.”
+“I know,” Lola says. “I can tell.” And she winks. 
