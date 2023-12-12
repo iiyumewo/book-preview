@@ -1,133 +1,81 @@
-29
+30
 
-Valencia
+Smaug
 
 
 
-Forty-eight hours ago, I was just a regular girl observing wildlife. Now I’m walking with a psychic to the house of a boy I don’t know so I can find out if he’s missing or not. Life is funny, isn’t it?
+There were so many things you could do with a stick. That’s why Chet liked sticks so much. You could poke and hit stuff. You could swing it around like a weapon. But most importantly—at least for today—you could root out snakes.
 
-Virgil lives in a nice neighborhood, just like Kaori said. The houses are twice the size of the houses on my street. When I mention it to Kaori, she just says, “Yeah, yeah, his dad’s a doctor.” Then she waves it away like it’s the least important thing to be thinking about right now. And maybe she’s right. I was just making an observation.
+He hadn’t seen a single snakeskin. He should have taken Davies with him and demanded that he point out exactly where he had found it. That would set him straight. Only Chet didn’t want to share the spotlight when he captured the real snake. That glory would be his, and his alone.
 
-To be honest, something about the big houses intimidates me, and I’m already nervous.
+He imagined just how it would go: him tying the knot on the pillowcase with the snake wriggling inside, then carrying the sack home like a triumphant bounty hunter. He would insist on keeping it as a pet, and once it was coiled inside its tank, he would call Davies right over and show him what he’d done with his bare hands. And that’s exactly what he’d say, too. 
 
-I’m not shy or anything, but I didn’t really feel like knocking on the front door of a house belonging to someone I didn’t know. But Kaori had explained once again that if Virgil’s parents or Lola thought he was with Kaori when he was really off doing something else—something he shouldn’t be doing—then he could get in big trouble.
+“I caught it with my bare hands.”
 
-“He probably isn’t,” Kaori had said as we made our way to the boy’s neighborhood. “He’s not exactly the type who goes off doing something he shouldn’t be doing, just like he’s not the type to miss an appointment. But you never know. People are an enigma.”
+Chet wasn’t so sure how his parents would feel about keeping a snake in the house. He could probably talk his mother into it. He seemed to be able to talk her into anything, especially if his father backed him up—but he didn’t know how his dad felt about snakes. Chet liked to think his father wasn’t afraid of anything, but he knew that everyone had their weaknesses. Even him. Chet would never tell anyone this in a million years, but despite being the bravest person he knew, he was afraid of dogs. Not little pipsqueak ones like Chihuahuas—he could feed one of those to his snake, no problem. No, it was the big ones that made him uneasy.
 
-So here I am, and Virgil’s house is one block away. Kaori stops me, and she and Gen give me very serious looks, like I’m a spy going on a secret mission.
+There were a few other things he was afraid of, too. Like the fact that he might not make the basketball team, no matter how hard he practiced. He’d already failed at Little League—never hit the ball, not even once—and Boyd Middle School didn’t have football, so that would have to wait. Basketball was his best shot at becoming an athlete. You might as well be nothing if you don’t excel at something. That was one of his dad’s favorite expressions, and right now Chet was batting average at everything. Basketball could change that. 
 
-“Here’s what you do,” Kaori says. “Knock on the door and ask if Virgil’s home.”
+The snake could, too.
 
-“Thanks for spelling it out for me,” I say.
+That was why he had a backup plan in case his parents wouldn’t let him keep it.
 
-When Gen giggles behind her hand, Kaori shoots her a look. 
+He would ask his father to take a picture of him holding it up, the way fishermen did with their big catches. Then he would text the picture to Davies with something clever, like “So you found a snakeskin, huh? Why don’t you tell me the story again?”
 
-“I’m serious,” says Kaori. “His Lola is very perceptive. I think she’s one of us.” She puts her hand on her chest to show me that “us” meant psychics. “If he’s not home, just say thanks and say you’ll stop back later. Then we’ll know what’s going on one way or another.”
+Chet mentally crafted a series of clever texts as he walked through the woods with his stick and pillowcase. He scanned the ground as he went, looking for places snakes might be, like big thickets of brush where it was easy to hide.
 
-“And what if he is home?” I could already feel the heat of embarrassment. Maybe I wouldn’t be so nervous if it was a girl’s house, but the fact that it’s a boy in a big fancy neighborhood makes my stomach flip around to the point of nausea. I don’t exactly talk to boys on a regular basis. And I definitely don’t go to their houses.
+“But you can’t hide from me!” Chet bellowed, as if the snakes spoke English.
 
-“Then tell him to come outside and meet us,” says Kaori, glancing over my shoulder. “We’ll wait right here.”
+He wondered what he would name it after its capture. What was a good name for a snake? Killer? No, too juvenile. Cobra? Too obvious.
 
-Gen taps my arm and smiles up at me. “You don’t have to worry that he’ll freak out or anything,” she says. “Virgil’s really nice. And he’s shy, like I said before. He even has a pet rat.”
+“Hmm,” Chet said, jabbing a mound of leaves at the base of a tree. “Maybe Smaug.”
 
-She pulls at the ends of her jump rope and shakes it loose. It splays across the hot cement and dangles near the toes of her sneakers. 
+Yes, Smaug. That sounded both threatening and snakelike. Besides, dragons and snakes were probably related. 
 
-“Really?” I say. This is an interesting development. Most people don’t like rats, but they make good pets. Rats are really smart and curious. And they’re always up for fun and adventure. It would be nice to have a pet rat. But I’d never ask my parents for one. I could just imagine the looks on their faces.
+When nothing slithered out of the leaves, Chet continued walking, yelling, “Smaug! Here, Smaug!” like he was calling a kitty. Each time he saw a pile of leaves and twigs, he jabbed and poked and called out for Smaug. And his heart didn’t even pound. He was really made of some tough stuff.
 
-Now Kaori is tapping my shoulder so I’ll know to look at her (she’s really good at the how-tos), and at the same time giving Gen a little shove. “It’s not a rat,” she says. “It’s a guinea pig.”
+And then . . .
 
-“Oh, I love guinea pigs!” I say. “I had one when I was really little, but it died. Her name was Lilliput.”
+Swisssh.
 
-I’d almost forgotten about Lilliput. She had very long hair and it was all different colors: light brown, dark brown, and black, mixed together. I can’t remember where we got her because I was so little, but I remember feeding her hay and watching her drink out of the bottle in her cage. She died while I was at preschool. When I came home, my dad had already buried her in the backyard. I cried because I didn’t get to say good-bye.
+There was rustling in the leaves, similar to what he’d heard when he discovered that girl Valencia. He stopped and looked around. It was hard to tell where the sound was coming from. But he couldn’t hear it anymore anyway. 
 
-“Lilliput! That’s a cute name,” says Gen, as she positions her rope for jumping.
+He suddenly got the distinct feeling that he was being watched by someone. Or something.
 
-Lilliput is the name of an island from a book called Gulliver’s Travels. In the book, the explorer, Lemuel Gulliver, travels to all these different lands after a shipwreck. The first place is Lilliput, an island where all the people are less than six inches tall. I liked the story, but I liked the name more: Lilliput. It sounded just like a place where little tiny people would live.
+“Hello?” he said. His voice sounded weak, so he tried to give it more gusto. “Is anyone there?”
 
-I’m just about to tell all this to Gen and ask what Virgil’s guinea pig is named when Kaori starts waving toward the house behind me.
+No answer.
 
-“Hurry up, hurry up,” she says. “We need to find out what’s going on.”
+What if that deaf girl was hiding in the trees?
 
-“All right, all right,” I say. I turn and walk toward the house. I try to walk all nonchalant-like so they don’t see how nervous I am.
+What if she was putting a hex on him?
 
-There aren’t any cars in the driveway. Maybe no one’s home.
+He waited.
 
-I walk up the stone pathway. It’s not like the house is a mansion or anything, but it’s big. Two stories tall, with a garage that fits three cars. There’s even a knocker on the front door shaped like a horseshoe. I lift it up, knock three times, and wait. I play with the straps of my bag. After about five seconds, I decide no one’s home. In one way it’s a relief, but then again, it would be better if he was home, because that would mean that Kaori’s friend is safe and sound. 
+When nothing happened, he rolled his eyes and mumbled, “Whatever.” He poked the leaves with his stick and heard something—this time, from the ground. He paused. Poked again.
 
-Then the door opens. I know right away it’s his Lola—which Kaori told me means “grandmother”—because she looks about a hundred years old. She’s small, shorter than me, and really skinny. She doesn’t smile. She’s not exactly mean looking, but not exactly friendly, either. She glances at my hearing aids, but only for a second.
+He took a step closer so the toes of his sneakers brushed against the pile of leaves. He’d definitely heard something move in there. His body rushed with adrenaline. Goose bumps exploded across both arms, even though it was a million degrees outside.
 
-“Um,” I say. “Is Virgil home?”
+He tightened his grip on the stick and swept away at the leaves.
 
-She lifts her chin like she didn’t hear me correctly. Her hand is still on the doorknob.
+He hadn’t expected to find anything, really. Yes, he was on a snake hunt, but he’d been at it for hours, and now it’d just become something to do. He didn’t realize that he no longer expected to find Smaug until he actually found him.
 
-“Virgil?” she says.
+The snake immediately lifted its head. It was the width of a garden hose but not very long. At that moment Chet realized how little he actually knew about snakes. He knew how he would grab it—by the tail, of course, so he wouldn’t have to put his hand near the snake’s mouth. But he had no clue whether it was poisonous or not. Could snakes this small be venomous? How was he supposed to know? It probably would have been smart to do some research, but there was no time for that. He couldn’t pull out his phone and Google it with Smaug’s eyes on him. This was a once-in-a-lifetime opportunity. The snake was exposed, waiting for capture. The time was now.
 
-For a second I’m worried I didn’t say his name correctly. Maybe his name isn’t Virgil after all. Maybe I put the pieces of the puzzle together incorrectly.
+Chet’s heart thundered.
 
-“Yes?” I say. It comes out like a question.
+“Adrenaline,” Chet mumbled. “Not fear. Adrenaline.”
 
-“No, Virgil isn’t home. He went out this morning. What is your name?”
+The snake wasn’t doing anything. Just staring. Not hissing. It didn’t sway back and forth like a sumo wrestler. It just rested there. Head raised. Almost like it was waiting to be picked up and petted. Almost like it was meant to be his pet.
 
-My chest and neck feel hot.
+Almost like fate.
 
-“My name?” I reply stupidly.
+Chet tossed the stick aside and flicked the pillowcase open with one melodramatic motion.
 
-“Yes,” says Lola. “So I can tell him you came.”
+He took a big, deep breath and moved closer. The second he leaned in, the snake reared its head back and Chet wildly grabbed at its tail, which gave Smaug plenty of time and open air to swing around—one quick motion—and sink its fangs into the thick and ruddy skin of the Bull’s right forearm.
 
-“Oh.” I clear my throat. “My name is . . . um, Valencia.”
+It felt like the claws of a kitten digging into him. He knew what that felt like—his cousin had a vicious cat—but cats were one thing and snakes were quite another, so he immediately dropped Smaug and howled, certain he would die in less than five minutes.
 
-“Um Valencia?” she says. I’m not sure if she’s teasing me or being mean. It’s hard to tell at first, but then her eyes soften and she smiles. “I was expecting you.”
+His forearm turned pink right away. His skin burned. He imagined the poison traveling through his veins and attacking his heart. Who would find his body? That deaf girl? That retarded boy? And would they know how he died? If one of them found him, he’d at least like them to know that he’d died in a life-or-death fight with a vicious reptile.
 
-“You were?”
-
-“Well, I was expecting something.”
-
-I expected her to say something normal, like “I’ll tell him you stopped by,” so I don’t know how to respond.
-
-“Your mother blessed you with a good name,” she continues. “Valencia Cathedral is one of the most important cathedrals in the world. It’s in Spain.”
-
-“Oh. I didn’t know that.”
-
-“Maybe your mother does.”
-
-“I doubt it.”
-
-“Hmm.” Lola looks like she’s considering this. “You should tell her. She might like to know that she picked a good, strong name.”
-
-“I think she knows already,” I say. “She’s not the type to question her choices.”
-
-Lola laughs. Her whole face crinkles up when she does. She kind of reminds me of a cackling witch, but not in a bad way.
-
-“I like your mother!” says Lola.
-
-That makes me smile, although I’m not sure why, because I consider my mother to be the biggest pain in the world.
-
-“Does Virgilio have your phone number?” Lola says. “I will tell him to type you a message when he gets home.”
-
-She motions her hands like she’s tapping on a cell phone, and I realize she’s talking about texting.
-
-I could have just said yes, but instead I blurt out “No,” which is the truth, and next thing you know, she’s waving me inside so she can write it down. I look toward Kaori and Gen and shrug. They’re too far away for me to see their faces. Gen is jump roping. She’s pretty fast, too.
-
-I don’t realize how hot it was outside until I step into Virgil’s house and feel the cool buzz of the air conditioning. Lola walks ahead of me, toward a big kitchen. I close the door and follow. She starts rummaging through a drawer. Her mouth is moving, but I can’t tell what she’s saying because she’s looking at the drawer instead of me. It’s funny how people talk to things like drawers instead of the person right across from them. I don’t want to bend down and stare at her face, because that would just be weird. So instead I turn and look casually at this big bookshelf against the wall. I don’t bother with the books though. Instead I stare right at a framed family picture. There are six people in the photo. Four of them are smiling—big, shiny, perfect smiles. Two of them aren’t. One is Lola. She has a faint scowl on her face, like she’s ready to get the picture taking over with. The other is a boy. He’s not scowling, exactly. It looks like he’s trying to make an effort to fake smile, but he just couldn’t get up the energy. I know right away this is Virgil. And I know right away why Kaori’s description sounded so familiar. 
-
-I know him.
-
-I search my memory for his face, and it comes to me right away.
-
-He’s in the resource room every Thursday, just like me. We never talked or anything, but he seemed nice. Quiet.
-
-When Lola taps me on the shoulder, I jump. Who knew I was so jittery?
-
-She’s holding a pen and scrap of paper and shaking it under my nose.
-
-“Did you hear me?” she says. She’s asking me to write my name and number on the paper.
-
-“No, I’m sorry.” I motion toward my hearing aids.
-
-“There was a girl in my village who was deaf,” Lola says after I give the paper back to her with my information. Virgil is going to be really confused when he gets it, but oh, well. What’s done is done. “People talked around her like she wasn’t there because they didn’t think she was paying attention. They figure, no use hiding our secrets if she can’t hear us. But she heard everything.” Lola leaned forward and tapped the folded corner of her right eye. “She heard with her eyes.”
-
-I wonder what kind of secrets that girl knew.
-
-“I hear with my eyes, too,” I say.
-
-“I know,” Lola says. “I can tell.” And she winks. 
+He cradled his arm and stared at it. The pillowcase was crumpled in the leaves like a deflated balloon, and he suddenly realized that he had no idea where Smaug had gone. The snake had vanished. Chet walked about twenty feet from the scene of the attack, searching for it. Then he sat at the base of a sturdy pine tree and waited to die. 
