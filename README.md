@@ -1,165 +1,137 @@
-31
+32
 
-Unpredictable Happenings
+The Worst Things to Say
 
 
 
-“Virgil wasn’t home, which means he’s in trouble. I know it,” said Kaori. “We need to have the ceremony.”
+If Pah didn’t get him first, Virgil figured one of three things would happen: he could suffocate, starve, or die of thirst. He didn’t know which was worse.
 
-After they returned from Virgil’s house, they’d collapsed on the floor of the Tanakas’ living room to discuss their next plan of action. They’d also turned on the television, which had lured Gen’s attention away. All for the better, as far as Kaori was concerned. Who needs the insight of a child where matters of life and death are at stake?
+Maybe all of them would happen. Maybe he wouldn’t be able to breathe and his tummy would rumble until it made his heart stop and his throat would close up, dry as a bone, and it would all happen at the same time.
 
-Just Renee frowned at the TV and said, “It’s hard for me to make out sounds with the TV on in the background. Makes everything garbled.” She wiggled her hands around her ears as if this was the universal sign for “garbled.” “Do you mind if we lower it?”
+How much air was in an abandoned well, anyway?
 
-Kaori glared at her sister. “Turn that thing down!”
+Was there a limited supply?
 
-Gen muted it, but didn’t look away.
+Would it eventually run out?
 
-“Did you say something about a ceremony?” Renee asked Kaori. 
+Would Pah come back?
 
-Kaori’s face turned serious. She straightened her back and folded her hands in her lap.
+An army of tears surged up from his gut. He squeezed his eyes shut to stop them from gushing out, then looked up, up, up, trying to see if there were ways for air to get inside. But it was completely dark. If light couldn’t get in, how would air ever make it?
 
-“The ceremony of lost things,” Kaori said solemnly. “It’s a ritual to help us find Virgil. But we can’t do it here. We have to go into the woods. The ceremony only works if you’re one with nature, and this certainly isn’t nature.” She gestured toward the television.
+“Doesn’t matter much,” said Virgil. “Since I’m gonna starve anyway.”
 
-The clock on the wall—a hideously ugly and practical thing, in Kaori’s opinion—said it was two nineteen. She wondered how long people had to be lost to be considered a missing person. It hadn’t been that long, but a lot of bad things could happen in three hours and nineteen minutes.
+He fed Gulliver a dandelion. He couldn’t see him, but he felt the tug of Gulliver’s teeth against the stem and heard the faint munching as he chewed it down.
 
-Kaori anticipated Just Renee’s next question: what’s the ceremony of lost things? Truth be told, Kaori had no idea. She was sure there was a proper ceremony that could help gifted mediums find lost items or people; she just didn’t know what it was. No matter. She would figure it out as she went along. The ancestors would guide her.
+“I’m sorry, Gulliver,” said Virgil. “I got us into a big mess.”
 
-“There’s no time to explain all the details,” said Kaori. She stood quickly and snapped her fingers in her sister’s direction. Gen turned her head, but not her eyes, from the TV. 
+What happened next was inevitable.
 
-Kaori sighed. Really, Gen was more trouble than she was worth sometimes. Kaori had explained that television was too practical, too traditional, too everyday for the Tanaka daughters, but the poor kid didn’t seem to get it.
+It was bound to happen, even if Virgil didn’t want it to.
 
-“Gen,” said Kaori. “Get Mom’s secret matches. We’re going into the woods.”
+Honestly? It would happen to anyone.
 
-Mrs. Tanaka kept a box of matches in the second drawer under the microwave. She used them to light her secret cigarettes, the ones she thought she was hiding from her daughters. As if.
+Virgil began to cry.
 
-“You can’t hide anything from me, Mother,” Kaori had once said. “I inherited the second sight.”
+The tears pushed up from somewhere deep in his belly, shifted into his throat, and then dribbled out like water from a leaky faucet. He tried desperately to stop them. He hated crying. He hated how it made his face wet and his eyes puffy and his throat hurt, but there was no stopping it. The tears came harder and with ferocity, until the faucet wasn’t just leaking, it was pouring, and Virgil had to catch his breath between sobs. Maybe he was being weak, or a baby, or a frightened turtle. So what, though? He was afraid. He was trapped in a pit without a friend in the world, and he was afraid.
 
-“Inherited from who?” her mother had asked. “No one on either side of the family has ever been remotely interested in such things.”
+He’d heard once that before you die, you see your life flash before your eyes. He wasn’t exactly dying just yet, but a few flashes came anyway. He thought of Lola. He thought of her hands and how they felt like paper. He thought of all her stories, how she’d complimented his fingers and said he should be a pianist, and how she taught him about Pah and the Stone Boy and the Sun Queen. Too bad she’d never told him a story about how to escape a well. And now she never would.
 
-Mrs. Tanaka had no appreciation for bloodlines or former lives—the kind that stretched back generations, the ones that no one knew about. When Kaori imagined her birth, she pictured herself emerging from a patch of lavender, dark haired and full of rage at the injustice of her past lives, of which there were two.
+He thought of his parents and brothers. The way they spoke in exclamation points and always teased him for being too shy, too quiet, and how they thought it was silly that he was afraid of the dark. He thought of how he used to imagine that he’d been floating in a river like Moses and his mother just happened to find him. Maybe she picked him up and said, “What’s this! A baby with no parents! I’ll take him home straightaway!” (Speaking in exclamation points, as usual.) And then he went home with her and everyone realized quickly that he didn’t exactly fit in, but that was okay because they loved him anyway. And he loved them, too, of course, even if he didn’t understand them. And now he never would.
 
-The first time she’d walked the earth, she’d been in ancient Egypt. She knew this because it came to her in a dream. She saw herself slipping between the pyramids in a long white robe. What other explanation was there, except that she had once walked through the pyramids in real life? 
+And he thought of Valencia.
 
-In her second life, she was a freedom fighter from Bangladesh. She knew this because she’d once seen a snippet of a documentary on television, and when they showed images of Bangladesh, they really looked familiar to her and she couldn’t explain why. She probably could have learned more if her father hadn’t switched the channel. She tried to explain that the documentary was necessary for her to explore past-life transgressions, but he said it was March Madness and past-life transgression didn’t happen during college basketball season.
+He wiped his snotty nose with the back of his hands and then swiped them on his pants. Usually he wouldn’t do such a thing, but the rules didn’t matter now. He was suffocating in a land of lost opportunities, where he should have talked to Valencia, told Lola that he loved her, tried to understand his parents and brothers, thanked Kaori for being such a good friend to him. And now it was too late for any of that.
 
-Just because her parents didn’t know about her secret heritage and magical and mystical powers didn’t make them not so. Besides, her parents had always been monstrously unimaginative. Take the smoking, for instance. Mrs. Tanaka smoked one or two cigarettes a week on the back patio, but she failed to consider that Kaori’s bedroom window was usually downwind, which meant the smoke blew right by the spirit chamber.
+Pah would come eventually, he was certain. And even if Pah didn’t come—snatching Gulliver as an appetizer before going after the main course—there was still no hope.
 
-Clueless.
+Virgil took big, heaving breaths. He cried until the faucet ran dry. How would anyone find him? The Bull was his only hope for rescue, and there was a fat chance of that happening. The Bull had probably forgotten all about him already. Or maybe he was back in his devil’s den, making a note in his log of evil deeds: first day of summer, trapped Virgil Salinas in a well. 
 
-Gen didn’t make a move for the matches right away. Instead she took her precious time getting up so she could catch the end of her show. She didn’t get a fire under her until Kaori snapped again.
+Virgil’s cheeks ached. His eyes burned. His nose throbbed.
 
-“Life-saving missions don’t wait for commercial breaks, you know!” she said. “Besides, we need to hurry before Mr. and Mrs. Tanaka get home.”
+Crying hurt. That’s why he hated it so much.
 
-Gen was still dragging her feet as Just Renee strode toward the door with her bag slung on her shoulder. Kaori snatched one of her mother’s decorative candles out of the candlestick on the table, stuck it in her back pocket, and followed Just Renee outside.
+“Crying is good for the soul,” said Ruby softly. “It means something needs to be released. And if you don’t release the something, it just weighs you down until you can hardly move.”
 
-Once the door opened, Gen picked up her pace. She grabbed her jump rope and slung it over her shoulder.
+“There’s nothing else for me to do,” Virgil said. His voice was hoarse from the weeping. 
 
-“Why do you bring that thing everywhere we go?” asked Kaori. “It’s not as if we’re going to jump rope through the trees.”
+“You should try yelling again.”
 
-“You never know when you might need to jump rope,” said Gen.
+Virgil pressed the heels of his hands against his eyes. “What’s the point? No one can hear me.”
 
-Kaori rolled her eyes. “Really. You are a wonder.”
+“Of all the questions you ever ask yourself in life, never ask, ‘What’s the point?’ It’s the worst question in the world,” Ruby said.
 
-She took the matches from her little sister, and the three of them stepped into the blazing hot sun. 
+“You sound like Lola.”
 
-“It’s hot,” Gen said. “We should cook an egg.”
+“Good.”
 
-She’d heard somewhere that it was possible to cook an egg on a car or cement if it was hot enough outside, and she’d been needling Kaori about it ever since.
+“I miss her.” He said it quietly, embarrassed even in front of himself. But it needed to be said. When you say things aloud, you let them go. Lola had told him that once. But it didn’t feel like it worked, because he still missed her.
 
-“We don’t have time for science experiments,” said Kaori. She locked the front door and shoved the house key deep into her pocket. Just Renee was already a few feet ahead, making her way toward the street.
+“It’s not like you’re never going to see her again,” Ruby said.
 
-“It only takes two seconds to crack an egg,” Gen said.
+“How do you know? No one will ever find me. No one will ever save me. There’s no chance.”
 
-“How can you think about eggs at a time like this?” Kaori asked. She and Gen followed Just Renee, who stopped at the Tanakas’ mailbox to wait. 
+“Bayani, of all the things you ever tell yourself in life, never say, ‘There’s no chance.’”
 
-“I bet he’s okay,” said Gen. “He probably just forgot. What’s the worst thing that could have happened?”
+“Okay. It’s too late, then.”
 
-“You don’t want me to answer that,” Kaori said.
+Ruby sighed. The sound traveled like a curl of invisible smoke.
 
-“Where are we going, exactly?” asked Just Renee.
+“That’s even worse,” she said.
 
-“Yeah,” said Gen. “Where are we going with the matches and candle, exactly?”
+Virgil slumped against the wall. He wanted to sleep through the starvation, but he couldn’t. Not with Pah out there somewhere. Maybe Pah was just above his head now, watching. Waiting to swoop down. Circling, like a vulture. Virgil didn’t dare look up to see. It was too dark anyway. 
 
-Kaori pointed straight ahead without breaking her stride, like a general leading her troops into battle.
+Just as Pah liked it.
 
-“That way,” she said.
+Virgil held his breath.
 
-As they crossed the street and entered the woods side by side, Gen tugged at Renee’s sleeve.
+Was that a feather against his cheek?
 
-“Do your hearing aids hurt?” she asked.
+Was that a rustling?
 
-“Sometimes they itch or make a dent in my ear. Hurts a little,” Renee said.
+He put his hands over his ears.
 
-The trees brought much-needed shade from the heat. Kaori took note of their surroundings, thinking. She wasn’t very familiar with the woods. Truth be told, they creeped her out. The woods were full of unpredictable happenings—snapping creatures, falling branches, stinging insects. She preferred the comforts of home, where she always knew what to expect. But what choice did she have? It’s not like they were going to find Virgil hiding under one of the sofa cushions.
+“Try yelling for help again,” said Ruby. 
 
-“Why do you still have to read lips if you have hearing aids?” asked Gen.
+“I don’t want to. It might—”
 
-Twigs crunched under their feet. 
+“It might what?”
 
-“They don’t make me hear everything clearly, the way you do. I have to fit the sounds with the shape the lips make, like a puzzle,” Renee said, looking from Gen to the woods. “And then I have to fit the sounds and the shapes with the situation, because so many words look the same when you lip-read. Like ‘mat’ and ‘mad’ or ‘pat’ and ‘pad.’”
+Startle Pah from his invisible perch and send him down for us.
 
-“Were you born deaf?”
+“I told you, he only grows if you’re afraid of him,” said Ruby. “Ignore Pah. Just yell. Do it for me.”
 
-“No. I could hear a little. That’s how I learned to talk. But then it went away, mostly.”
+Virgil dropped his hands, slowly. All was quiet.
 
-“I wonder if mine will go away.”
+“You can’t just give up,” Ruby said.
 
-“Doubtful.”
+“There’s a time when a person has to give up. That’s just the truth.”
 
-“Could you read lips from far away if you had binoculars or a telescope?”
+“Give me an example,” said Ruby.
 
-Kaori couldn’t take it anymore. How was she supposed to become one with the forest if Gen kept talking?
+“I’m too tired to give examples.”
 
-“Stop asking so many questions,” Kaori snapped. She heard buzzing near her ear and swatted at it. 
+“Don’t avoid the question just because you don’t want to think of an answer.”
 
-Gen blinked at her. “Why?”
+Virgil sighed. He thought for a moment. “Okay. Let’s say you’re running a race. It’s a really, really long race, too. And you sign up because you think you can do it. You practice running for months, maybe even years. And then the big race comes and you’re running and running. And suddenly your legs are really tired. And you’re dehydrating. And you can hardly breathe. And the finish line is still way down the road and stuff. But you just can’t make it. You start throwing up or something. If you keep going, you know you’ll drop dead. So you stop. And you sit on the side of the road so you don’t die. You have to give up, or else.” 
 
-“Because it’s rude.”
+“That’s a terrible example,” said Ruby immediately.
 
-“Just Renee doesn’t mind.” Gen looked up at their new client and tapped her hand. “Do you?”
+Virgil’s eyebrows bunched together. He glared into the darkness. “No it’s not.”
 
-“I mind,” Kaori said. “We need to stay focused, and your prattling isn’t helping.”
+“Yes it is.”
 
-Kaori didn’t want to admit it, but she liked having Gen as her second-in-command, which meant she was always first-in-command, which meant she needed to be in charge. But Just Renee seemed to be a natural take-charge person—she was leading the way, even though she had no idea what they were supposed to be looking for. Kaori would bet money she was a Leo.
+“What makes it a terrible example?”
 
-“Let’s stop here,” Kaori said. 
+“Because the person in your story didn’t give up. Giving up would have been never starting the race at all.”
 
-Gen stopped. Then Just Renee. They both looked at Kaori curiously.
+Virgil sighed again.
 
-“To properly conduct the ceremony, we need a special type of stone,” said Kaori, with as much authority as she could.
+“I want to sleep. Will you watch out for me?”
 
-“Like the five stones you told Virgil to get?” Gen asked.
+“I will . . . if you yell for help one last time.”
 
-“What five stones?” asked Just Renee, looking from little sister to big sister.
+“Promise?”
 
-Kaori ignored the question. There was no time to explain minor details. “We only need one. It’s called a snakeskin agate.”
+“I promise, Bayani. Make it a good one.”
 
-Just Renee tilted her head. “Did you say you need a snakeskin agate?”
-
-“Yes. Snakeskin agate,” Kaori repeated.
-
-“What’s that?” asked Gen.
-
-“It’s a stone. It could be as small as a pigeon egg.” Kaori opened her empty hand as if the agate would magically appear there. “It’s a rock with scales. That’s why it’s called a snakeskin.”
-
-Just Renee frowned. “We’ll never find one of those in these woods.”
-
-“How do you know?” asked Kaori. “There’s all kinds of rocks and things in here.”
-
-“Because snakeskin agates are usually found in dry riverbeds or along beaches—places where there’s water.” Just Renee looked around at the dry twigs and towering trees. “There definitely isn’t any water around here.”
-
-Gen crossed her arms and raised her eyebrows at Kaori. “Now what?”
-
-Kaori didn’t know what to say. For all she knew, Just Renee was right. Kaori had never actually seen a snakeskin agate, after all, but she’d studied endless pages of gems online, and she knew which ones were used for what. The snakeskin agate helped you find lost things. And Virgil was lost; if not to himself, then to her. And as silly and ridiculous as Virgil was, she wanted to know he was alive and breathing.
-
-“I suppose we don’t necessarily need to find a snakeskin agate precisely,” said Kaori. “Maybe just something like it. I mean, it’s the gem you’re supposed to use, but whatever. I guess we can just get a rock with scales. Something close enough. Maybe our energy will make up for the rest.”
-
-Gen looked up at Just Renee to gauge her reaction. “What do you think?” she asked. 
-
-Kaori frowned. She’d never heard Gen ask anyone else for guidance before. Not even their parents. 
-
-Just Renee studied Gen’s face, then looked at Kaori. A few seconds passed before she said, “If your sister says we need to find a rock with scales, I guess we need to find a rock with scales.”
-
-Kaori’s shoulders relaxed. Something passed between the two older girls then, a mutual understanding that didn’t need to be spoken—and Kaori, being a gifted person of second sight, had great appreciation for such things. She smiled at Just Renee, just a little, just a hint, and Just Renee smiled back.
-
-That was when they heard the screaming.
+Virgil took a big, deep breath. He filled his chest with air, opened his mouth wide, and yelled and yelled until his voice gave out.
