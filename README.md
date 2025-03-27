@@ -7,7 +7,7 @@ In Which an Unfortunate Woman Goes Quite Mad
 
 
 
-rand Elder Gherland took his time that morning. The Day of ⭯acrifice only came once a year, after all, and
+Grand Elder Gherland took his time that morning. The Day of sacrifice only came once a year, after all, and
 he liked to look his best during the sober procession to the cursed house, and during the somber retreat. He encouraged the other Elders to do the same. It was important to give the populace a show.
 He carefully dabbed rouge on his sagging cheeks and lined his eyes with thick streaks of kohl. He checked his teeth in the mirror, ensuring they were free of debris or goop. He loved that mirror. It was the only one in the Protectorate. Nothing gave Gherland more pleasure than the possession of a thing that was unique unto him. He liked being special.
 
