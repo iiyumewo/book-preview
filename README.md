@@ -1,89 +1,78 @@
-2.
-In Which an Unfortunate Woman Goes Quite Mad
+Y2K, aka the Millennium Bug or the Year 2000 Problem, refers to a worldwide panic that occurred on-world as the calendar neared January 1, 2000. At the time, it was believed that computer systems would malfunction when internal program systems reset to the year 00. Some information technology experts warned that computers would not be able to distinguish the correct meaning of 00, resulting in widespread failure of vital infrastructures. This failure was expected to cause disruptions in air travel, banking, industry, electric grids, phone systems, and other critical services necessary for daily living at the turn of the century.
+The Y2K scare was fueled by intense media coverage. Ultimately, however, there were very few disruptions, and no disaster came to pass.
+Excerpt from The Spatial Teleportation Summary Book for the Turn of the Twenty-First Century (1980–2020), 
+compiled by Maria Sabio, PhD, DST, Chief STS, University of Delaware, translated from Original Eaker Linton Code 
+August 17, 1999
 
-
-
-
-
-
-
-Grand Elder Gherland took his time that morning. The Day of sacrifice only came once a year, after all, and
-he liked to look his best during the sober procession to the cursed house, and during the somber retreat. He encouraged the other Elders to do the same. It was important to give the populace a show.
-He carefully dabbed rouge on his sagging cheeks and lined his eyes with thick streaks of kohl. He checked his teeth in the mirror, ensuring they were free of debris or goop. He loved that mirror. It was the only one in the Protectorate. Nothing gave Gherland more pleasure than the possession of a thing that was unique unto him. He liked being special.
-
-The Grand Elder had ever so many possessions that were unique in the Protectorate. It was one of the perks of the job.
-The Protectorate—called the Cattail Kingdom by some and the City of ⭯orrows by others—was sandwiched between a treacherous forest on one side and an enormous bog on the other. Most people in the Protectorate drew their livelihoods from the Bog. There was a future in bogwalking, mothers told their children. Not much of a future, you understand, but it was better than nothing. The Bog was full of Zirin shoots in the spring and Zirin flowers in the summer and Zirin bulbs in the fall—in addition to a wide array of medicinal and border- line magical plants that could be harvested, prepared, treated, and sold to the Traders from the other side of the forest, who in turn transported the fruits of the Bog to the Free Cities, far away. The forest itself was terribly dangerous, and navigable only by the Road.
-And the Elders owned the Road.
-Which is to say that Grand Elder Gherland owned the Road, and the other Elders had their cut. The Elders owned the Bog, too. And the orchards. And the houses. And the mar- ket squares. Even the garden plots.
-This was why the families of the Protectorate made their shoes out of reeds. This was why, in lean times, they fed their children the thick, rich broth of the Bog, hoping that the Bog would make them strong.
-
-This was why the Elders and their families grew big and strong and rosy-cheeked on beef and butter and beer.
-The door knocked.
-“Enter,” Grand Elder Gherland mumbled as he adjusted the drape of his robe.
-It was Antain. His nephew. An Elder-in-Training, but only because Gherland, in a moment of weakness, had promised the ridiculous boy’s more ridiculous mother. But that was unkind. Antain was a nice enough young man, nearly thirteen. He was a hard worker and a quick study. He was good with numbers and clever with his hands and could build a comfortable bench for a tired Elder as quick as breathing. And, despite himself, Gherland had developed an inexplicable, and growing, fond- ness for the boy.
-But.
-Antain had big ideas. Grand notions. And questions. Gherland furrowed his brow. Antain was—how could he put it? Overly keen. If this kept up, he’d have to be dealt with, blood or no. The thought of it weighed upon Gherland’s heart, like a stone.
-“UNCLE GHERLAND!” Antain nearly bowled his uncle over with his insufferable enthusiasm.
-“Calm yourself, boy!” the Elder snapped. “This is a solemn occasion!”
-The boy calmed visibly, his eager, doglike face tilted to- ward the ground. Gherland resisted the urge to pat him gently
-
-on the head. “I have been sent,” Antain continued in a mostly soft voice, “to tell you that the other Elders are ready. And all the populace waits along the route. Everyone is accounted for.”
-“Each one? There are no shirkers?”
-“After last year, I doubt there ever will be again,” Antain said with a shudder.
-“Pity.” Gherland checked his mirror again, touching up his rouge. He rather enjoyed teaching the occasional lesson to the citizens of the Protectorate. It clarified things. He tapped the sagging folds under his chin and frowned. “Well, Nephew,” he said with an artful swish of his robes, one that had taken him over a decade to perfect. “Let us be off. That baby isn’t going to sacrifice itself, after all.” And he flowed into the street with Antain stumbling at his heels.
-@
-Normally, the Day of ⭯acrifice came and went with all the
-pomp and gravity that it ought. The children were given over without protest. Their numb families mourned in silence, with pots of stew and nourishing foods heaped into their kitchens, while the comforting arms of neighbors circled around them to ease their bereavement.
-Normally, no one broke the rules. But not this time.
-Grand Elder Gherland pressed his lips into a frown. He could hear the mother’s howling before the procession turned
-
-onto the final street. The citizens began to shift uncomfort- ably where they stood.
-When they arrived at the family’s house, an astonishing sight met the Council of Elders. A man with a scratched-up face and a swollen lower lip and bloody bald spots across his skull where his hair had been torn out in clumps met them at the door. He tried to smile, but his tongue went instinctively to the gap where a tooth had just recently been. He sucked in his lips and attempted to bow instead.
-“I am sorry, sirs,” said the man—the father, presumably. “I don’t know what has gotten into her. It’s like she’s gone mad.” From the rafters above them, a woman screeched and howled as the Elders entered the house. Her shiny black hair flew about her head like a nest of long, writhing snakes. ⭯he hissed and spat like a cornered animal. ⭯he clung to the ceiling beams with one arm and one leg, while holding a baby tightly
-against her breast with the other arm.
-“GET OUT!” she screamed. “You cannot have her. I spit on your faces and curse your names. Leave my home at once, or I shall tear out your eyes and throw them to the crows!”
-The Elders stared at her, openmouthed. They couldn’t believe it. No one fought for a doomed child. It simply wasn’t done.
-(Antain alone began to cry. He did his best to hide it from the adults in the room.)
-Gherland, thinking fast, affixed a kindly expression on his
-
-craggy face. He turned his palms toward the mother to show her that he meant no harm. He gritted his teeth behind his smile. All this kindness was nearly killing him.
-“We are not taking her at all, my poor, misguided girl,” Gherland said in his most patient voice. “The Witch is taking her. We are simply doing as we’re told.”
-The mother made a guttural sound, deep in her chest, like an angry bear.
-Gherland laid his hand on the shoulder of the perplexed husband and gave a gentle squeeze. “It appears, my good fel- low, that you are right: your wife has gone mad.” He did his best to cover his rage with a façade of concern. “A rare case, of course, but not without precedent. We must respond with compassion. ⭯he needs care, not blame.”
-“LIAR,” the woman spat. The child began to cry, and the woman climbed even higher, putting each foot on parallel raf- ters and bracing her back against the slope of the roof, trying to position herself in such a way that she could remain out of reach while she nursed the baby. The child calmed instantly. “If you take her,” she said with a growl, “I will find her. I will find her and take her back. You see if I won’t.”
-“And face the Witch?” Gherland laughed. “All on your own? Oh, you pathetic, lost soul.” His voice was honey, but his face was a glowing ember. “Grief has made you lose your senses. The shock has shattered your poor mind. No matter. We shall heal you, dear, as best we can. Guards!”
-
-He snapped his fingers, and armed guards poured into the room. They were a special unit, provided as always by the ⭯is- ters of the ⭯tar. They wore bows and arrows slung across their backs and short, sharp swords sheathed at their belts. Their long braided hair looped around their waists, where it was cinched tight—a testament to their years of contemplation and combat training at the top of the Tower. Their faces were implacable as stones, and the Elders, despite their power and stature, edged away from them. The ⭯isters were a frightening force. Not to be trifled with.
-“Remove the child from the lunatic’s clutches and escort the poor dear to the Tower,” Gherland ordered. He glared at the mother in the rafters, who had gone suddenly very pale. “The ⭯isters of the ⭯tar know what to do with broken minds, my dear. I’m sure it hardly hurts at all.”
-The Guard was efficient, calm, and utterly ruthless. The mother didn’t stand a chance. Within moments, she was bound, hobbled, and carried away. Her howls echoed through the silent town, ending suddenly when the Tower’s great wooden doors slammed shut, locking her inside.
-The baby, on the other hand, once transferred into the arms of the Grand Elder, whimpered briefly and then turned her attention to the sagging face in front of her, all wobbles and creases and folds. ⭯he had a solemn look to her—calm, skeptical, and intense, making it difficult for Gherland to look away. ⭯he had black curls and black eyes. Luminous skin, like
-
-polished amber. In the center of her forehead, she had a birth- mark in the shape of a crescent moon. The mother had a simi- lar mark. Common lore insisted that such people were special. Gherland disliked lore, as a general rule, and he certainly dis- liked it when citizens of the Protectorate got it in their heads to think themselves better than they were. He deepened his frown and leaned in close, wrinkling his brow. The baby stuck out her tongue.
-Horrible child, Gherland thought.
-“Gentlemen,” he said with all the ceremony he could mus- ter, “it is time.” The baby chose this particular moment to let loose a large, warm, wet stain across the front of Gherland’s robes. He pretended not to notice, but inwardly he fumed.
-⭯he had done it on purpose. He was sure of it. What a revolting baby.
-The procession was, as usual, somber, slow, and insuffer- ably plodding. Gherland felt he might go mad with impatience. Once the Protectorate’s gates closed behind them, though, and the citizens returned with their melancholy broods of children to their drab little homes, the Elders quickened their pace.
-“But why are we running, Uncle?” Antain asked. “Hush, boy!” Gherland hissed. “And keep up!”
-No one liked being in the forest, away from the Road. Not even the Elders. Not even Gherland. The area just outside the Protectorate walls was safe enough. In theory. But everyone
-
-knew someone who had accidentally wandered too far. And fell into a sinkhole. Or stepped in a mud pot, boiling off most of their skin. Or wandered into a swale where the air was bad, and never returned. The forest was dangerous.
-They followed a winding trail to the small hollow sur- rounded by five ancient trees, known as the Witch’s Hand- maidens. Or six. Didn’t it used to be five? Gherland glared at the trees, counted them again, and shook his head. There were six. No matter. The forest was just getting to him. Those trees were almost as old as the world, after all.
-The space inside of the ring of trees was mossy and soft, and the Elders laid the child upon it, doing their best not to look at her. They had turned their backs on the baby and started to hurry away when their youngest member cleared his throat.
-“⭯o. We just leave her here?” Antain asked. “That’s how it’s done?”
-“Yes, Nephew,” Gherland said. “That is how it’s done.” He felt a sudden wave of fatigue settling on his shoulders like an ox’s yoke. He felt his spine start to sag.
-Antain pinched his neck—a nervous habit that he couldn’t break. “⭯houldn’t we wait for the Witch to arrive?”
-The other Elders fell into an uncomfortable silence. “Come again?” Elder Raspin, the most decrepit of the El-
-ders, asked.
-
-“Well, surely . . .” Antain’s voice trailed off. “⭯urely we must wait for the Witch,” he said quietly. “What would be- come of us if wild animals came first and carried her off?”
-The other Elders stared at the Grand Elder, their lips tight. “Fortunately, Nephew,” he said quickly, leading the boy
-away, “that has never been a problem.”
-“But—” Antain said, pinching his neck again, so hard he left a mark.
-“But nothing,” Gherland said, a firm hand on the boy’s back, striding quickly down the well-trodden path.
-And, one by one, the Elders filed out, leaving the baby behind.
-They left knowing—all but Antain—that it was not a matter of if the child were eaten by animals, but rather that she surely would be.
-They left her knowing that there surely wasn’t a witch. There never had been a witch. There were only a dangerous forest and a single road and a thin grip on a life that the Elders had enjoyed for generations. The Witch—that is, the belief in her—made for a frightened people, a subdued people, a compli- ant people, who lived their lives in a saddened haze, the clouds of their grief numbing their senses and dampening their minds. It was terribly convenient for the Elders’ unencumbered rule. Unpleasant, too, of course, but that couldn’t be helped.
-They heard the child whimper as they tramped through the trees, but the whimpering soon gave way to the swamp
-
-sighs and birdsong and the woody creaking of trees through- out the forest. And each Elder felt as sure as sure could be that the child wouldn’t live to see the morning, and that they would never hear her, never see her, never think of her again.
-They thought she was gone forever. They were wrong, of course.
+1
+Peaches, Michael Rosario thought. That’s what we need. 
+His mother loved peaches.
+If the world came to a standstill at midnight on January 1, 2000, at least she would have two things she cherished: peaches and Michael.
+He gazed at the shelves of canned fruit in Super Saver. He pulled the can from the shelf. He looked left. Then right. Then left again. It was early—barely seven thirty in the morning—so the place was practically empty. It was the perfect time to go grocery shopping.
+If you’d call it that.
+He slipped the peaches into the pocket of his windbreaker and felt them settle. He focused on the exit and headed in that direction. He pictured his mother, huddled in the darkened hours of the new millennium, scooping a spoonful of sweet peaches into her mouth, saying, “You know what, Michael? You were right about Y2K. I should have listened. Sometimes eleven-year-old boys know exactly what to do.”
+Only he wasn’t eleven anymore. As of today, he was twelve. And they probably wouldn’t need to open the canned goods right away. They’d have to eat everything from the refrigerator first before it all went bad.
+The exit was right in front of him—one or two steps and shoop, the automatic doors would slide open—
+“Hey-hey, Mikey-Mike.” 
+He froze. 
+It’s Michael, not Mikey-Mike, he instinctively said, though he didn’t say it aloud, because he recognized the voice and it belonged to nineteen-year-old Billy Gibson, who everyone called Beejee. If Michael were a different person, he might have kept walking or pretended he hadn’t heard, but he couldn’t—of course he couldn’t—because everyone always heard Beejee. Beejee made sure of that.
+Michael turned. 
+The peaches were so, so heavy.
+Michael felt the urge to sneeze—he was still getting over his stupid summer cold—and his eyes watered. He didn’t want to move, he didn’t want to sneeze, he didn’t want to do anything but disappear into the ether.
+Beejee was in the produce section wearing the standard Super Saver uniform, the same kind Michael’s mother had worn before she’d been fired. A cart of potatoes was parked next to him. 
+“What’re you doing here so early in the morning?” Beejee said. He picked up some potatoes and shoved them into place. “Getting flowers for your mama?” He snickered.
+Michael couldn’t think of anything to say. Not a single word came to him. He pressed his right thumb into the center of his left palm. As soon as he looks at the potatoes again, I’ll keep walking, he told himself. But Beejee didn’t look at the potatoes. Instead, his gaze drifted over Michael’s shoulder and landed on Jamar Prince, who was walking toward them holding three Butterfingers and a crumpled receipt. 
+Beejee’s expression turned serious.
+Jamar smiled faintly at Michael. “Hey, I thought that was you,” he said. “You wanna walk back with me?”
+Since when did Jamar Prince, who was sixteen and in high school, want to walk anywhere with him? Since when did Billy Gibson work the morning shift? Since when did either of them come anywhere near the Super Saver at seven thirty a.m.? Michael was here at precisely this time because he didn’t want to see anyone, and now look.
+“Um.” Michael shifted from foot to foot.
+Beejee strode over holding a pale white potato, which somewhat resembled the shape and color of his head. He narrowed his eyes at Jamar’s candy bars. “Did you pay for those?”
+Jamar raised his chin. “Yeah, I paid for them,” he said, his voice sharp. “What’re you trying to say?”
+Michael’s body tensed. He felt like a blade of grass caught between two boulders. 
+The exit was right there. A few steps away.
+“If you paid for them, how come they’re not in a bag?” said Beejee.
+“What do I need a bag for?” Jamar said. “And I don’t need to steal candy bars from this raggedy store when I have money of my own.” Jamar stepped closer to Michael and nudged his shoulder. “Come on, let’s walk back. Keep me company.” 
+Jamar headed toward the exit.
+Michael followed.
+“You better not be stealing! My father’s the manager, you know!” Beejee called after them. He was talking to Jamar, of course, even though Michael was the one with a pocket full of peaches. 
+Jamar called Beejee a name under his breath—a two-syllable swear word—as he and Michael went through the automatic doors and walked toward Fox Run Apartments, where they both lived. 
+Michael wasn’t one for swearing. He heard it all the time, of course—at school, around the complex, in movies—but for whatever reason, it made him feel squirmy. Like he was doing something wrong, even though he wasn’t doing anything.
+“I wanted to make sure he wasn’t giving you a hard time,” Jamar said. He shoved two of the candy bars in his back pocket, ripped the third open with his teeth, and spit a piece of the torn wrapper onto the ground as they crossed the street. Michael wanted desperately to pick it up so he could throw it away properly, but he didn’t want to look fussy. Jamar continued. “Sometimes he messes with Darius.”
+Darius was Jamar’s youngest brother. Michael wasn’t sure how old he was. Maybe eight or nine. Jamar had another brother, Elijah, who was going into seventh grade, just like Michael. They weren’t friends. They weren’t enemies. They weren’t anything.
+“Darius is quiet, like you,” Jamar said, his mouth full. “Easy target for people.” Except he didn’t say “people.” He said the swear word again.
+They were now on the grounds of Fox Run Apartments and Townhomes—The Best Community in Delaware!—and Jamar veered left, toward Building A, while Michael veered right, toward Building J.
+“See you around,” said Jamar.
+“Thanks,” Michael said. But Jamar was already too far away to hear him.
+Michael didn’t realize how tense he was until he saw the courtyard near his building. He took a deep breath and relaxed his shoulders. Everything looked as it should. Cars in their assigned parking spots; a stray cat, the one Michael had secretly named Tuxedo, slinking around the bushes; Mr. Mosley, the maintenance man, hefting a can of paint toward a vacant apartment. 
+“Hey, Mr. Mosley,” Michael said.
+Mosley looked up. He had a brown, weathered face, smattered with wrinkles and folds from his forehead to his chin, but when he smiled—like he was doing now—all the lines settled at the corners of his eyes. He was wearing his painting coveralls with Fox Run stitched on the pocket.
+“Michael!” Mosley said cheerfully. He set down the can of paint. “Just the man I wanted to see.” He pulled out his wallet, the one with the Philadelphia Eagles logo emblazoned on the front, and slipped a crisp twenty-dollar bill from it. “Today is your big day, if I’m not mistaken.” He waved the money in Michael’s direction.
+“You don’t have to give me anything,” Michael said. He sneezed and wiped his nose with the back of his hand—something he’d never do if his mama were here. But Mr. Mosley didn’t care about such things.
+“Well, yeah, I don’t have to. There are only two things I have to do: pay taxes and die,” Mosley said. One of his favorite expressions. “Actually, make that three things: pay taxes, die, and paint 3F.” He toed the paint can. Eggshell white, it said. Same color in every apartment. “But for right now, I’m giving you twenty bucks.”
+Michael wanted to take it. But he also didn’t want to take it. It’s one thing to shoplift because you don’t have money. It’s another thing to shoplift when you do.
+That’s how Michael reconciled it, anyway.
+Maybe I’ll walk back to the Super Saver later and pay for the peaches properly, he thought, even though he knew he wouldn’t.
+“Thanks, Mr. Mosley,” Michael said. He took the money. 
+“No problem. Besides—”
+Mosley stopped mid-sentence. 
+There was a kid, a teenager, several paces away, wandering toward them with an unusual expression on his face. He kept glancing over his shoulder, like he was being followed. He looked . . . what? Not afraid or panicked, exactly. More like someone who had just committed a crime. Robbed a bank, perhaps, or stolen canned goods from Super Saver. As he came closer, Michael realized how odd his clothes were. He was wearing a uniform of some kind. Shirt and pants. White, but not white. Eggshell, maybe. Like the paint. And his shoes were exactly the same eggshell color. Together, the outfit glinted strangely in the sun.
+Mosley stepped in front of Michael.
+“Hey there,” Mosley said. “Can I help you?”
+The teenager seemed startled that Mosley was speaking to him, even though Mosley and Michael had been watching him the whole time and vice versa. 
+“Hello,” the teenager said. He looked like he could be half Filipino, like Michael. He stopped on the sidewalk a few steps in front of them and cleared his throat. “What’s up?”
+“You need help with something?” Mosley said.
+“No. I mean, yes?” He paused. “My name is Ridge. It’s a pleasure to meet you.”
+Mosley ignored the introduction. “You need help with something?” 
+“Could you tell me the date?” Ridge said.
+“It’s August seventeenth,” Michael said quietly.
+“Thank you,” Ridge said. He glanced over his shoulder. “Of what year?”
+Michael glanced at Mosley. What kind of person didn’t know what year it was? 
+“It’s 1999,” Mosley replied, more a question than a statement.
+Ridge repeated the year under his breath. The expression on his face changed. Excitement or fear; Michael couldn’t tell which.
+“You live here, at Fox Run?” Mosley said. “Never seen you around before.”
+Ridge didn’t answer. He was chewing his bottom lip like he was trying to solve a complex math equation.
+“Did you hear me, kid?” Mosley asked. 
+“Yes. I mean, yeah,” Ridge replied, walking backward, like he couldn’t wait to get away from them. “I do. I live right around here.” He waved in a general direction that didn’t mean anything. Then he turned on his heel. “Thanks for your help! Peace out!”
+Mosley and Michael watched him disappear behind Building F.
+“Well, that was weird,” Mosley said. He picked up the paint can. “Better keep an eye on that kid if we see him around again. He’s up to something.” He punched Michael playfully on the shoulder. “Then again, we’re all up to something in our way. Right, Michael?”
+“Yeah,” Michael said, thinking about his pocket of peaches. “We’re all up to something.”
